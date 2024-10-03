@@ -1,324 +1,121 @@
-# PONÈNCIA MARC
-
-## 12è CONGRÉS
-
-## 2024
 
 
-```
-Novembre de 2024
-```
-## PONÈNCIA MARC 12è CONGRÉS (2024)
-
-### COMISSIÓ DE REDACCIÓ (POLÍTICA EDUCATIVA I ACCIÓ
-
-### SINDICAL).
-
-### SETEMBRE DE 2024
 
 
-```
-Novembre de 2024
-```
 ### Índex
-
 ### 1. Una situació social i econòmica dura; una educació al límit (2017-
-
 ### 2024)
-
 ### 1.1. La cronificació de la crisi i l’empobriment dels treballadors i
-
 ### treballadores
-
 ### 1.1.1. Una situació global descoratjadora: la consolidació de la
-
 ### Internacional Reaccionària com a amenaça a la democràcia
-
 ### 1.1.2. Una situació nacional incerta: mobilització i desmobilització
-
 ### nacional i social
-
 ### 1.1.3. Les transformacions en la cultura del treball dels docents i el
-
 ### personal educatiu
-
 ### 1.2. La involució en el sistema educatiu, 2017-
-
 ### 1.2.1. L’aprofundiment de la LEC i el deteriorament induït de les
-
 ### condicions laborals del personal del departament d’Educació
-
 ### 1.2.2. La qüestió de la formació
-
 ### 1.2.3. L’avaluació
-
 ### 1.2.4. La derogació de la LOMCE i la no millora educativa de la
-
 ### LOMLOE
-
 ### 1.2.5. Els atacs de les institucions, els mitjans i les xarxes socials
-
 ### contra les idees educatives progressistes
-
 ### 1.2.6. Els nous discursos reaccionaris en l’educació
-
 ### 2. Model educatiu d’USTEC·STEs (IAC)
-
 ### 2.1. El nostre objectiu: escola pública, única, coeducadora, laica,
-
 ### gratuïta i en català
-
 ### 2.2. Les nostres propostes
-
 ### 2.2.1.Davant les velles i noves formes de privatització de
-
 ### l'ensenyament públic
-
 ### 2.2.1.1. La concertada com a element de segregació educativa
-
 ### 2.2.1.2. L’autonomia de centre com a element desmantellador de
-
 ### l’escola pública
-
 ### 2.2.1.3. El decret de plantilles com a mecanisme de control
-
 ### ideològic dels Claustres
-
 ### 2.2.1.4. La innovació educativa, un Cavall de Troia per a la
-
 ### penetració de serveis privats a l’escola pública
-
-```
-5
-```
-```
-5
-```
-10
-
-15
-
-20
-
-25
-
-30
-
-35
-
-
-```
-Novembre de 2024
-```
 ### 2.2.1.5. El foment de l'economia neoliberal. Emprenedoria, EFEC... ,
-
 ### empreses i bancs dicten els seus valors a l’escola
-
 ### 2.2.1.6. La digitalització al sistema educatiu: pantalles, intel·ligència
-
 ### artificial i capitalisme digital
-
 ### 2.2.1.7. Polítiques globalitzadores com a base de la privatització de
-
 ### l’educació. La liberalització absoluta de l’educació
-
 ### 2.2.1.8. La Formació Professional al servei de les necessitats de la
-
 ### societat o de les empreses? Un pastís atractiu per a la seva
-
 ### privatització
-
 ### 2.2.2. Què proposem
-
 ### 2.2.2.1. Defensem l’ensenyament públic, de la bressol a la
-
 ### universitat
-
 ### 2.2.2.1.1. Escola bressol
-
 ### 2.2.2.1.2. Escola rural
-
 ### 2.2.2.1.3. Una formació professional catalana de tothom i per a
-
 ### tothom
-
 ### 2.2.2.1.4. Educació de persones adultes
-
 ### 2.2.2.1.5. Les escoles oficials d’idiomes, un servei públic a l’abast
-
 ### de tothom
-
 ### 2.2.2.1.6. Universitats
-
 ### 2.2.2.2. Lluitem per la gestió democràtica
-
 ### 2.2.2.3. Per la millora de les condicions laborals del personal docent
-
 ### i laborals
-
 ### 2.2.2.4. Jornada lectiva
-
 ### 2.2.2.5. Avaluació del professorat vs. desenvolupament professional
-
 ### docent
-
 ### 2.2.2.6. Model lingüístic
-
 ### 2.2.2.7 .Educació feminista. Impuls a la coeducació
-
 ### 2.2.2.8. Una escola laica per una societat laica
-
 ### 2.2.2.9. Educació inclusiva
-
-40
-
-45
-
-50
-
-55
-
-60
-
-65
-
-
-```
-Novembre de 2024
-```
 ### 3. Com ho fem? Acció sindical
-
 ### 3.1. Balanç del cicle 2017-
-
 ### 3.2. Recursos que tenim
-
 ### 3.2.1. Realitat de l'afiliació
-
 ### 3.2.1.1. Evolució de l’afiliació i reptes de futur
-
 ### 3.2.1.2. Millora de l’atenció a l’afiliació
-
 ### 3.2.1.3. La participació de l’afiliació
-
 ### 3.2.2. Persones actives als centres, claustres i a la societat
-
 ### 3.2.3. Persones amb llicència sindical
-
 ### 3.2.4. La formació interna i externa de les nostres bases
-
 ### 3.2.5. La pròpia organització: imatge, lideratge, comunicació externa
-
 ### i participació
-
 ### 3.2.6. La IAC: el nostre paper en el si de l’organització,
-
 ### l’administració pública i altres sectors
-
 ### 3.3. On els destinem: sindicalisme alternatiu i social i participació en
-
 ### les diferents lluites
-
 ### 3.3.1. Estratègia sindical per a assolir millores educatives i laborals
-
 ### 3.3.2. L’acció sindical al territori: visites a centres, assessorament i
-
 ### resolució de problemes als professionals de l’educació
-
 ### 3.3.3. Les dificultats i oportunitats
-
 ### 3.3.4. Objectius
-
 ### 3.3.4.1. La lluita contra la LEC i la LOMLOE i la seva filosofia de
-
 ### fons
-
 ### 3.3.4.2. La lluita contra la privatització i per la xarxa única
-
 ### 3.3.4.3. La lluita pel desplegament d’una educació inclusiva
-
 ### 3.3.4.4. La lluita per l’estabilització de les plantilles
-
 ### 3.3.4.5. Malestar laboral i lluita per dignificar la nostra professió
-
 ### 3.3.4.5.1. Salaris dignes
-
 ### 3.3.4.5.2. Combatre la sobrecàrrega i millorar el clima laboral
-
 ### 3.3.4.5.3. La democràcia i la diversitat metodològica
-
 ### 3.3.4.6. Transformació Social: pedagogia crítica contra el
-
 ### neoliberalisme
-
 ### 3.3.4.7. La lluita pel model lingüístic propi
-
-```
-70
-```
-```
-75
-```
-```
-80
-```
-```
-85
-```
-```
-90
-```
-```
-95
-```
-100
-
-
-```
-Novembre de 2024
-```
 ### 3.3.5. Pensar, reflexionar i actuar col·lectivament, un sindicalisme
-
 ### alternatiu i social: els moviments socials i la USTEC·STEs (IAC)
-
 ### 3.3.6. Salut laboral: la línia a seguir als centres educatius i a nivell
-
 ### intern
-
 ### 3.3.7. El Personal Laboral: condicions, diferents col·lectius, acció
-
 ### sindical i encaix
-
 ### 3.4. Relació amb els altres agents educatius, socials i polítics
-
 ### 3.4.1. L’Administració: meses de negociació, paritàries, CIVE,
-
 ### Comitè Intercentres, paritàries
-
 ### 3.4.2. La resta de sindicats
-
 ### 3.4.3. La resta de la comunitat educativa i de la societat
-
-105
-
-110
-
-
-```
-Novembre de 2024
-```
 ### 1. Una situació social i econòmica dura; una educació al límit
-
 ### (2027-2024)
-
 ### 1.1. La cronificació de la crisi i l’empobriment dels treballadors
-
 ### i les treballadores
-
 ### 1.1.1. Una situació global descoratjadora: la consolidació de la
-
 ### Internacional Reaccionària com a amenaça a la democràcia
-
-```
 En primer lloc, constatem que estem immersos en l’època del capitalisme
 financer global, en un sistema que necessita les crisis per a continuar
 reproduint-se. Això s’ha traduït a Europa en una accentuació de polítiques
@@ -343,24 +140,6 @@ resistència de les societats civils respectives. A la Unió Europea, s’han
 expressat sota la forma de durs i indignants rescats bancaris, amb la
 socialització de les pèrdues de la bombolla financera, i la seva traducció en
 dures retallades que no s’han acabat de revertir, controls estrictes de les
-```
-115
-
-120
-
-125
-
-130
-
-135
-
-140
-
-
-```
-Novembre de 2024
-```
-```
 polítiques econòmiques per part de la Troica (Comissió Europea, Fons
 Monetari Internacional i Banc Central Europeu), restriccions pressupostàries,
 ofegament financer mitjançant el deute públic, pressupostos restrictius,
@@ -391,28 +170,7 @@ que han assumit els postulats neoliberals o bé resten perplexes davant unes
 transformacions profundes que no semblen comprendre, aquesta situació fa
 reviure el fantasma de la intolerància i el totalitarisme, amb opcions polítiques
 que poden acabar canalitzant aquest ressentiment.
-```
-```
-20
-```
-145
-
-150
-
-155
-
-160
-
-165
-
-170
-
-
-```
-Novembre de 2024
-```
-```
-La internacional Reaccionària
+## La internacional Reaccionària
 En la conjuntura actual, un fantasma recorre el món, una nova dreta
 reaccionària que guanya espais a Europa, als EUA i a l’Amèrica Llatina. El
 segle XXI va començar amb una onada caracteritzada per una sèrie de
@@ -444,24 +202,6 @@ i propostes per tal de combatre polítiques de l’esquerra i el progressisme am
 tota una crida als valors religiosos, de la família i de la propietat front l’avenç
 dels drets de les dones, la diversitat sexual i les demandes per tal de
 redistribuir la riquesa i el treball. Les polítiques educatives estan en el centre de
-```
-175
-
-180
-
-185
-
-190
-
-195
-
-200
-
-
-```
-Novembre de 2024
-```
-```
 la seva acció política, amb la persecució de les llengües minoritzades i l’escola
 pública. I així trobem que la seguretat, vinculada a la immigració, l’han convertit
 en un dels principals problemes per a l’opinió pública catalana segons dades
@@ -482,8 +222,6 @@ polítiques neoliberals i evitar que aquestes es qüestionin. La crida que es fa
 des del Foro Madrid és una croada contra les idees d’esquerra i progressistes,
 que qualifiquen de projecte ideològic i criminal que està subjugant les llibertats i
 drets de les nacions.
-```
-```
 Davant d’aquesta Internacional i les seves amenaces, cal coordinació i acció
 per tal de defensar la democràcia en el seu sentit més ampli, defensar la
 llibertat d’expressió i l’alternativa de les esquerres com a projecte social, polític i
@@ -494,24 +232,6 @@ Europa es prepara per a un escenari de guerra, armant-se i augmentant els
 pressupostos militars. L’any olímpic Barcelona’92, fa més de 30 anys, 1.
 científics independents, entre els quals 104 premis Nobel, van escriure un
 Advertiment a la Humanitat, on feien una crida urgent a reduir la destrucció
-```
-205
-
-210
-
-215
-
-220
-
-225
-
-230
-
-
-```
-Novembre de 2024
-```
-```
 ambiental i a abordar un gran canvi en la gestió de la Terra i de la vida, tot
 declarant que, per a l’èxit en aquest esforç global, calia una dràstica reducció
 de la violència i de la guerra.
@@ -532,12 +252,8 @@ i vulneració dels drets humans que el règim sionista està perpetrant a Gaza -
 sense oblidar la violència desfermada també a Cisjordània contra la població
 civil-, on es compten per desenes de milers les persones mortes, ferides i
 desaparegudes pels atacs de l’exèrcit d’Israel.
-```
 ### 1.1.2. Una situació nacional incerta: mobilització i
-
 ### desmobilització nacional i social
-
-```
 A Catalunya, durant el període 2017-2024, la manifestació d’aquesta crisi
 global s’ha traduït en un qüestionament del marc polític sorgit durant
 l’anomenada “Transició espanyola”. Així doncs, l’emergència i eixamplament
@@ -546,24 +262,6 @@ mateixa manera, la repressió desmesurada de l’Estat cap a la voluntat
 d’autodeterminació de Catalunya ha demostrat que el qüestionament de
 l’esmentat marc polític era i continua sent necessari, donada la configuració
 antidemocràtica i profundament reaccionària de certs poders de l’Estat (alta
-```
-235
-
-240
-
-245
-
-250
-
-255
-
-260
-
-
-```
-Novembre de 2024
-```
-```
 judicatura, guàrdia civil, etc.), alhora que pren més sentit que mai continuar
 defensant el dret d’autodeterminació de Catalunya.
 Aquest procés de mobilització per modificar la relació de Catalunya amb l’Estat
@@ -596,26 +294,6 @@ de 95.000 signatures i aconseguí introduir en el debat social qüestions com ar
 la raó de ser de l’escola concertada, la necessitat d’una inversió adequada, la
 gratuïtat total del sistema educatiu, la gestió democràtica i transparent o la
 millora de les condicions laborals de tots els treballadors dels centres
-```
-265
-
-270
-
-275
-
-280
-
-285
-
-290
-
-295
-
-
-```
-Novembre de 2024
-```
-```
 educatius com a condició indispensable per gaudir de l’ensenyament de
 qualitat que mereix el nostre país. Malauradament, i com era previsible, el
 2016, el debat fou avortat al Parlament per aquells partits polítics partidaris del
@@ -635,12 +313,8 @@ sobrecàrrega laboral per manca d’inversió en personal docent i d’atenció
 educativa per part del departament. El resultat ha estat la penetració amb força
 d’un discurs conservador amb matisos reaccionaris dintre de la professió, tal
 com es va veure a les darreres eleccions sindicals.
-```
 ### 1.1.3. Les transformacions en la cultura del treball dels docents
-
 ### i el personal educatiu
-
-```
 Paral·lelament a les transformacions polítiques i socials, en els darrers anys, i
 de manera accelerada, s’han produït fenòmens complexos de caràcter
 tecnològic, cultural, comunicatiu i generacional que han anat impactant en els
@@ -650,27 +324,6 @@ Els anys del mal anomenat “Pacte Nacional per l’Educació”, de l’aprovac
 desplegament de la LEC, de la LOMCE i els inicis de les retallades van ser
 anys de gran mobilització i de vagues massives i sovintejades. Tota aquesta
 mobilització, però, no va aconseguir gaires resultats tangibles. Són anys,
-```
-```
-35
-```
-300
-
-305
-
-310
-
-315
-
-320
-
-325
-
-
-```
-Novembre de 2024
-```
-```
 també, en què el departament d’Educació ha anat transformant, de manera
 progressiva i accelerada, la mesa de negociació en un tràmit administratiu,
 sense funció ni eficàcia negociadora, la qual cosa ha situat i continua situant el
@@ -703,24 +356,6 @@ funciona com a factor que propicia l’obediència.
 A més a més, es registra una creixent esquerda generacional, amb una bona
 quantitat de personal jove, dependent de les direccions, precari, sense
 experiència de lluita sindical ni social per extensió, al qual no ha arribat el
-```
-330
-
-335
-
-340
-
-345
-
-350
-
-355
-
-
-```
-Novembre de 2024
-```
-```
 testimoni de lluita dels treballadors i treballadores més veterans. I alhora, la
 proliferació d’aparells electrònics, telèfons intel·ligents, tauletes digitals (amb la
 consegüent expansió de dades digitals i el seu ús amb intenció política o
@@ -754,26 +389,6 @@ saturació d’informació fa que difícilment professorat i personal laboral bu
 informació en profunditat, de manera que sovint la frase curta, la informació
 puntual, el vídeo breu o la piulada efímera acabin comportant una informació
 restringida, parcial, rebuda segons l’interès personal, descontextualitzada o
-```
-360
-
-365
-
-370
-
-375
-
-380
-
-385
-
-390
-
-
-```
-Novembre de 2024
-```
-```
 aïllada. Precisament aquesta nova manera de comunicar-se també té efectes
 sobre les formes de mobilització i participació sindical.
 També és constatable la penetració de la ideologia neoliberal entre bona part
@@ -806,24 +421,6 @@ turística, com pot ser l’illa de Formentera, es planteja que els mestres dorm
 en albergs juvenils o càmpings.
 Si bé des del punt de vista material la docència és un mal negoci, el que
 probablement més influeix en la pèrdua d’atractiu de la professió són altres
-```
-395
-
-400
-
-405
-
-410
-
-415
-
-420
-
-
-```
-Novembre de 2024
-```
-```
 elements derivats de les transformacions educatives que tant s’han promogut
 des de la conselleria. La tria a dit del professorat ha implicat una llei del silenci
 dels docents, que implica una pèrdua total d’autonomia d’aula. Els docents ja
@@ -857,26 +454,6 @@ elements científics i culturals que permeten generar una ciutadania
 políticament preparada, crítica i exigent. De fet, les darreres polítiques
 educatives impulsades per reformes dissenyades des d’organismes econòmics
 com l’OCDE —que molts qualifiquen de “Superministeri d’Educació”—,
-```
-425
-
-430
-
-435
-
-440
-
-445
-
-450
-
-455
-
-
-```
-Novembre de 2024
-```
-```
 impliquen la substitució de coneixements per competències bàsiques,
 d’humanitats per tecnologia, d’alta cultura per ocupabilitat.
 És per tot el que hem dit al paràgraf anterior que podríem estar assistint a una
@@ -899,41 +476,14 @@ precaritzadores i privatitzadores del departament, malgrat que, per a continuar
 restant poder a la precarització i a la verticalitat organitzativa als centres de
 treball, encara ens queda pendent aconseguir que totes les places surtin als
 concursos de trasllats.
-```
 ### 1.2. La consolidació de la involució en el sistema educatiu,
-
 ### 2017-
-
 ### 1.2.1. L’aprofundiment de la LEC i el deteriorament induït de les
-
 ### condicions laborals del personal del departament d’Educació
-
-```
 La LEC, aprovada al Parlament de Catalunya el 2009, ha estat desplegada
 normativament a partir dels decrets d’autonomia, de direccions, i de provisió i
 plantilles (i segurament ben aviat d’avaluació). Aquest aparell normatiu, blindat
 fa tres anys per una LOMLOE en la mateixa direcció, ha servit per concretar
-```
-```
-50
-```
-460
-
-465
-
-470
-
-475
-
-480
-
-485
-
-
-```
-Novembre de 2024
-```
-```
 els principis tòxics d’una llei que anava més enllà de la pròpia normativa
 estatal, i que correspon a la ideologia política neoliberal que assumeixen la
 majoria dels grups polítics de la cambra catalana.
@@ -960,24 +510,6 @@ escolars. A més, contribueix a deteriorar el clima de convivència en el si de 
 comunitat educativa, atès que aquells centres que funcionen d’acord amb
 criteris autoritaris acaben per dissoldre els llaços de solidaritat i els nivells de
 confiança mútua necessaris per fer funcionar el centre.
-```
-490
-
-495
-
-500
-
-505
-
-510
-
-
-```
-Novembre de 2024
-```
-### 1.2.2. La qüestió de la formació
-
-```
 Si bé no necessàriament derivat de la LEC, la política educativa dels darrers
 anys s’ha aplicat a l’hora de degradar la formació, tant la inicial com a la
 continuada. Pel que fa al primer cas, el magisteri de quatre anys no sembla que
@@ -990,6 +522,7 @@ magisteri, uns plans docents poc coherents entre si, on resulten habituals
 plantejaments pedagògics discutibles i carències importants quant al domini de
 matèries instrumentals i didàctiques específiques per a diverses àrees del
 coneixement.
+
 D’altra banda, resulta molt preocupant que un percentatge elevat d’estudiants
 de magisteri no pugui superar les PAP (Proves d’Accés al Professorat), amb un
 nivell de dificultat relativa, i encara resultat més preocupant que els candidats a
@@ -1009,24 +542,6 @@ Desenvolupament Professional Docent que comenci abans d’accedir a la funció
 pública docent, amb itineraris de formació pedagògica per als estudiants de
 graus universitaris d’especialitats no destinades a la docència que vulguin
 dedicar-se a ensenyar, amb la consegüent eliminació del màster de secundària.
-```
-515
-
-520
-
-525
-
-530
-
-535
-
-540
-
-
-```
-Novembre de 2024
-```
-```
 Aquesta mesura asseguraria una orientació primerenca per als i les futures
 docents, alhora que actuaria com a mecanisme de captació personal per al
 sistema educatiu públic. Al punt 2.2.2.5, detallarem la nostra proposta de
@@ -1059,35 +574,12 @@ general de l’educació. Contràriament a això, consideraríem positiu retorna
 modalitats de formació en zona, a partir dels interessos del propi personal
 educatiu i que fomentés l’intercanvi entre docents i personal d’atenció
 educativa de diferents escoles i instituts. Finalment, considerem que una de les
-```
-545
-
-550
-
-555
-
-560
-
-565
-
-570
-
-575
-
-
-```
-Novembre de 2024
-```
-```
 millors formacions és la que organitzen les universitats i institucions
 acadèmiques, per la qual cosa, el departament d’Educació hauria de facilitar la
 matriculació del professorat i personal d’atenció educativa en la formació
 impartida per les esmentades entitats i la incorporació en departaments
 universitaris.
-```
 ### 1.2.3. L’avaluació
-
-```
 L’avaluació és un d’aquests àmbits recurrents en aquests canvis normatius, i
 una eina de control i fiscalització de la tasca educativa. D’acord amb el que ja
 ha passat en altres sistemes educatius, l’avaluació s’ha fet servir per
@@ -1112,24 +604,6 @@ a nivell de centre, com individual) com a mèrit. Fa anys que ens temem alguna
 concreció més al respecte amb vocació punitiva per part de l’Administració, i
 podria ser que el detonant vingués ara del Ministeri presidit per la ministra Pilar
 Alegría, que recentment anunciava a bombo i platerets tirar endavant un estatut
-```
-580
-
-585
-
-590
-
-595
-
-600
-
-605
-
-
-```
-Novembre de 2024
-```
-```
 docent. Rebutgem qualsevol proposta de Carrera Professional Docent
 circumscrita en la lògica de la competició i la desigualtat entre el personal, tal
 com sembla que pretén impulsar el Ministeri d’Educació espanyol o com
@@ -1149,12 +623,8 @@ a entrenar l’alumnat per a les proves, reducció d’unes humanitats “poc
 avaluables o rendibles”.
 En contraposició al model d’avaluació anteriorment descrit, posicionem, tal
 com hem dit, el Desenvolupament Professional Docent (vegeu punt 2.2.2.5).
-```
 ### 1.2.4. La derogació de la LOMCE i la no millora educativa de la
-
 ### LOMLOE
-
-```
 La llei Orgànica 3/2020, de 29 de desembre, per la qual es modifica la LOE de
 2006, també coneguda com a LOMLOE i Llei Celáa –la ministra que la
 impulsà– va ser aprovada al Congrés espanyol el 19 de novembre de 2020, al
@@ -1163,27 +633,6 @@ senat el 23 de desembre del mateix any, i publicada al BOE. Això implica que
 substitueix la LOMCE de 2013 i que es fonamenta, tal com estableix el seu
 enunciat, en una reforma que té com a base la Llei orgànica d’educació de
 2006, elaborada pel govern socialista de l’època Zapatero.
-```
-```
-65
-```
-610
-
-615
-
-620
-
-625
-
-630
-
-635
-
-
-```
-Novembre de 2024
-```
-```
 Aquesta llei ha de ser desplegada en base a decrets curriculars, la Llei de
 formació professional i altres possibles normes, com ara una Llei de funció
 pública docent. En qualsevol cas, caldrà tenir ben presents l’articulat, i sobretot
@@ -1215,24 +664,6 @@ educatives: d’FP Bàsica al Grau Mitjà; i del Grau Mitjà al Superior, i les
 equivalències que hi corresponen (FPB a l’ESO), i GM a Batxillerat.
 L’obsessió per millorar taxes de graduació (d’acord amb els objectius UE 2030)
 podrien tenir com a conseqüència la devaluació dels títols, i que això pogués
-```
-640
-
-645
-
-650
-
-655
-
-660
-
-665
-
-
-```
-Novembre de 2024
-```
-```
 tenir també conseqüències perverses, com ara que no valgui el mateix una
 titulació d’un determinat centre d’elit que el d’un gueto. De fet, podria propiciar
 un mercat educatiu en el sentit que ja succeeix als Estats Units o el Regne Unit,
@@ -1252,12 +683,8 @@ institucions econòmiques internacionals. Consegüentment no conté cap de les
 propostes de la ILP d’educació en què USTEC·STEs (IAC) va participar, una
 ILP que continua sent una proposta de llei educativa vàlida i necessària per a
 assolir una educació pública i de qualitat.
-```
 ### 1.2.5. Els atacs de les institucions, els mitjans i les xarxes
-
 ### socials contra les idees educatives progressistes
-
-```
 El fet que USTEC·STEs hagi mantingut una actitud de coherència social i
 sindical al llarg del període, que mantingui la seva credibilitat per la seva
 actuació quotidiana i en moments de mobilització, contrasta amb una visió no
@@ -1266,24 +693,6 @@ mitjançant els mitjans de comunicació. De fet, en aquests anys d’incertesa i
 volatilitat política, en què sovint diversos actors socials tracten de situar-se en
 posicions favorables davant la possibilitat de canvis profunds en el sistema
 polític, detectem una deliberada voluntat d’aïllar-nos.
-```
-670
-
-675
-
-680
-
-685
-
-690
-
-695
-
-
-```
-Novembre de 2024
-```
-```
 Malgrat que USTEC·STEs ha participat en l’elaboració de discurs i en la
 discussió pedagògica, des del departament d’Educació, des de determinades
 fundacions i des de part del món acadèmic, se’ns pretén reduir a una mena de
@@ -1312,24 +721,7 @@ banda, aquest entramat, gràcies al control dels principals mitjans de
 comunicació, té prou poder i influència com per condicionar la imatge púbica
 que sovint es presenta de nosaltres mitjançant els mitjans de comunicació, o
 per tal que es freni tota discussió al Parlament de la ILP d’Educació.
-```
-700
-
-705
-
-710
-
-715
-
-720
-
-
-```
-Novembre de 2024
-```
 ### 1.2.6. Els nous discursos reaccionaris en l’educació
-
-```
 Així com políticament el període 2017-2024 ha estat marcat per l’aparició i/o
 auge de partits polítics i governs d’extrema dreta arreu (inclòs l’Estat i
 Catalunya, amb exemples en territoris germans com el País Valencià i
@@ -1349,14 +741,9 @@ desenvolupant una estratègia sindical adequada per a assolir millores laborals
 i inversió en educació inclusiva, per tal de demostrar que la nostra proposta és
 millor perquè és l’única que pot garantir l’equitat en termes socials, a banda de
 fonamentar-se en el rigor de la recerca acadèmica.
-```
 ### 2. Model educatiu d’USTEC·STEs (IAC)
-
 ### 2.1. El nostre objectiu: educació pública, única, coeducadora,
-
 ### laica, gratuïta i en català
-
-```
 Corren temps difícils per a l'escola pública. Sobre ella han recaigut
 especialment les retallades que han acompanyat la crisi econòmica precedent,
 unes retallades encara no revertides del tot, i sobretot un infrafinançament
@@ -1364,24 +751,6 @@ endèmic que és a la base, per exemple, de la impossibilitat de tenir una
 educació pública realment inclusiva o del fet que els docents catalans siguem
 dels més mal retribuïts de l’Estat. D’altra altra banda, les polítiques educatives
 de les diferents administracions han anat encaminades a consolidar la
-```
-725
-
-730
-
-735
-
-740
-
-745
-
-750
-
-
-```
-Novembre de 2024
-```
-```
 guetització dels centres i a potenciar les diferències de classe social, de
 gènere, culturals, d’idearis religiosos. A tot això, cal afegir un context on l’escola
 catalana s’ha vist atacada en la seva autonomia curricular i el seu sistema
@@ -1393,14 +762,9 @@ defensa d’una única xarxa educativa pública, catalana i en català, gestiona
 directament per la Generalitat de Catalunya, de manera democràtica i que
 garanteixi els valors d'una societat que ha de caminar inexorablement vers la
 igualtat de drets i oportunitats de la seva ciutadania.
-```
 ### 2.2. Les nostres propostes
-
 ### 2.2.1.Davant les velles i noves formes de privatització de
-
 ### l'ensenyament públic
-
-```
 Les polítiques neoliberals en educació no han fet més que avançar. La LEC ha
 mantingut la doble xarxa educativa i ha aprofundit encara més aquesta via.
 Amb el concepte de Servei d’Educació de Catalunya, la privada concertada
@@ -1417,27 +781,6 @@ viabilitat a les concertades.
 Paral·lelament, el desplegament de la LEC, en consonància amb altres
 experiències internacionals de privatització, ha afavorit la penetració de serveis
 privats a l'escola pública, especialment preocupants en àmbits de formació
-```
-```
-80
-```
-755
-
-760
-
-765
-
-770
-
-775
-
-780
-
-
-```
-Novembre de 2024
-```
-```
 continuada o de la renovació pedagògica. Un dels darrers, i amb gran ressò en
 el debat educatiu i en l’àmbit comunicatiu ha estat el desembarcament d'Escola
 Nova 21 que, de la mà de La Caixa , la Fundació Bofill, la UOC i
@@ -1464,31 +807,10 @@ l’estratègia sindical més adequada per a assolir els objectius marcats.
 Per això caldrà atendre les lluites d’educació alhora que bastim un moviment
 social ampli, en col·laboració amb la IAC i altres entitats que sintonitzin amb els
 nostres valors, si escau.
-```
 ### 2.2.1.1. La concertada com a element de segregació educativa
-
-```
 La major xacra del sistema educatiu públic és actualment el classisme. Tenim
 un sistema educatiu segregat perquè la societat catalana manté unes
 marcades diferències de classe, apuntalades jurídicament per la LEC i la
-```
-785
-
-790
-
-795
-
-800
-
-805
-
-810
-
-
-```
-Novembre de 2024
-```
-```
 LOMLOE. I això, per descomptat, acaba tenint negatives repercussions
 educatives, que qualsevol professional viu quotidianament. És així com les
 qüestions pedagògiques i les polítiques educatives estan tan condicionades pel
@@ -1510,36 +832,14 @@ recursos judicials en contra dels grups de pressió de torn. En certa mesura, la
 nostra pressió ha contribuït a la residualització d’aquest tipus d’escoles.
 Tanmateix, ens continuarem comprometent fins que s’erradiqui aquesta
 classista i antidemocràtica pràctica de separar nens i nenes.
-```
 ### 2.2.1.2. L’autonomia de centre com a element desmantellador
-
 ### de l’escola pública
-
-```
 L'autonomia de centre, tal i com l’entén la LEC i la LOMLOE, no té res a veure
 amb les velles concepcions que els moviments progressistes d'ensenyants
 reivindicaven durant els anys de l’anomenada “Transició”. Llavors l'autonomia
 de centre era concebuda com una forma de trencar amb la rigidesa i
 monolitisme de l'antic règim dictatorial i així poder aconseguir donar
 protagonisme als centres, al seu professorat; tot això concebut dins d'un
-```
-815
-
-820
-
-825
-
-830
-
-835
-
-840
-
-
-```
-Novembre de 2024
-```
-```
 context de llibertat i democràcia als centres, on tot es feia i es decidia entre tots
 i totes.
 La LEC , per contra, va consagrar un model d'"autonomia" que en realitat
@@ -1572,24 +872,6 @@ Cal, doncs, que USTEC·STEs continuem denunciant el que suposa aquest
 model d'autonomia impulsat per la LEC , dintre i fora dels centres. S'ha de fer
 entendre a la societat que l'escola no és cap negoci i que els negocis a les
 escoles resten inversió per a la millora de la qualitat educativa. En aquest sentit
-```
-845
-
-850
-
-855
-
-860
-
-865
-
-870
-
-
-```
-Novembre de 2024
-```
-```
 és absolutament necessari ampliar la xarxa social que defensa l'escola
 pública. En aquest moment comptem amb la confluència de més veus
 procedents de diverses opcions polítiques i dels moviments socials en contra
@@ -1623,35 +905,11 @@ objectiu la convergència social i educativa, que els centres siguin equivalents
 similars pel que fa a qualitat. Aquest és un model a les antípodes del que s’està
 esdevenint, que tracta de fer de cada centre un petit gueto narcisista, on cada
 centre resulti tan singular que sigui difícil parlar de sistema educatiu, on els
-```
-875
-
-880
-
-885
-
-890
-
-895
-
-900
-
-905
-
-
-```
-Novembre de 2024
-```
-```
 projectes cada vegada resulten més exclusius i competitiu i s’acosten als vells
 “idearis” d’escoles concertades. L’autonomia ha de ser llibertat individual i
 col·lectiva, no dictadura dels rànquings.
-```
-### 2.2.1.3. El decret de Plantilles com a mecanisme de control
-
-### ideològic dels claustres
-
-```
+## 2.2.1.3. El decret de Plantilles com a mecanisme de control
+## ideològic dels claustres
 Durant la tramitació de la LEC, sovint massa sols, ja vam avisar dels perills de
 privatització encoberta d’aquesta llei. El desenvolupament dels decrets
 d’autonomia, de direccions i, finalment, de provisió i perfils, tots recorreguts per
@@ -1677,27 +935,6 @@ d’Educació, que, malgrat que canviï de color polític, no fa més que aprofu
 en l’esmentada cultura de la privatització en la gestió i contractació del
 personal. D’altra banda, cada plaça que no surt a concurs de trasllats per a ser
 posteriorment perfilada o viceversa, cada plaça provisional l’ocupació de la qual
-```
-```
-95
-```
-910
-
-915
-
-920
-
-925
-
-930
-
-935
-
-
-```
-Novembre de 2024
-```
-```
 depèn de la intervenció de la direcció, etc. genera nous problemes i més
 malestar laboral. Valgui d’exemple el resultat de les darreres adjudicacions
 provisionals (estiu 2024), amb centenars de docents desplaçats a centenars de
@@ -1720,36 +957,14 @@ desenvolupar l’educació inclusiva tot invertint allò necessari, fomentar la
 participació democràtica dels claustres en les decisions organitzatives i
 pedagògiques d’escoles i instituts, etc.), recorre a un sistema de gestió
 empresarial que va en contra de la prestació d’un bon servei públic de qualitat.
-```
 ### 2.2.1.4. La innovació educativa, un Cavall de Troia per a la
-
 ### penetració de serveis privats a l’escola pública
-
-```
 En els darrers anys, les polítiques públiques educatives s’han caracteritzat per
 una desinversió econòmica i una preocupant deixadesa amb la formació,
 especialment la permanent, on va caure a zero i ara, malgrat recuperar-se, és
 insuficient i inadequada. És així com, després d’anys marcats per les retallades
 i falta d’inversió crònica en educació, en un context de descomposició social a
 causa del creixent empobriment, l’escola s’està mirant al mirall i no s’agrada.
-```
-940
-
-945
-
-950
-
-955
-
-960
-
-965
-
-
-```
-Novembre de 2024
-```
-```
 Això l’ha fet fràgil i vulnerable als nous aventurers educatius, que tracten de
 suplir amb xerrameca i certes dosis de pseudociència les mancances evidents,
 materials i immaterials del sistema educatiu.
@@ -1782,24 +997,6 @@ credibilitat al projecte.
 Perquè, en el fons, allò a què assistim és a un acte de competitivitat a la
 recerca de les famílies benestants i aquelles que compten amb millor bagatge
 cultural. La innovació, articulada al voltant de determinades xarxes escolars
-```
-970
-
-975
-
-980
-
-985
-
-990
-
-995
-
-
-```
-Novembre de 2024
-```
-```
 com l’Escola Nova 21 serveix de “marca” per tractar de fer atractiu un producte.
 Això té diversos danys col·laterals. La dinàmica de competència entre escoles, i
 aquí moltes escoles públiques estan participant no sempre de manera
@@ -1833,26 +1030,6 @@ diners públics, en primera instància, i que, en generar una polarització
 educativa, propicia un sistema educatiu dual en què unes poques escoles,
 capaces d’atreure l’alumnat més benestant o amb majors potencialitats,
 començaran a fer pagar preus inabastables per a la majoria, mentre que
-```
-1000
-
-1005
-
-1010
-
-1015
-
-1020
-
-1025
-
-1030
-
-
-```
-Novembre de 2024
-```
-```
 s’induirà la degradació de la resta. És per això que la innovació patrocinada per
 La Caixa i altres entitats similars, i publicitada per mitjans afins al
 neoliberalisme, és un cavall de Troia que porta en el seu interior la privatització
@@ -1871,12 +1048,8 @@ desvetllada i feliç, en una societat justa i igualitària. La innovació del Ca
 Troia pretén fer negoci en una societat on tot, també l’escola, és
 mercantilitzable i que el seu model social implica una gran divergència de
 classes socials i educatives.
-```
 ### 2.2.1.5. El foment de l'economia neoliberal. Emprenedoria,
-
 ### EFEC... , empreses i bancs dicten els seus valors a l’escola
-
-```
 En els darrers anys es percep una presència i penetració creixent d’empreses i
 interessos financers als centres educatius, en base a convenis establerts amb
 el departament d’Educació. En l'àmbit de l'economia, primer va ser amb la
@@ -1886,24 +1059,6 @@ l’assignatura d’emprenedoria als centres educatius es va anar desplegant, de
 manera associada a l’esperit i la lletra de la LEC. En el moment present, s’està
 oferint tant a primària com a secundària. Ens trobem davant d’una matèria que
 planteja que cal potenciar els coneixements individuals, les oportunitats del
-```
-1035
-
-1040
-
-1045
-
-1050
-
-1055
-
-1060
-
-
-```
-Novembre de 2024
-```
-```
 mercat i les habilitats socials per tal de poder tenir èxit en un mercat global on
 la competència fixa les necessitats i capacitats individuals.
 D’altra banda, ja durant les legislatures del tripartit, es va iniciar un projecte pilot
@@ -1936,27 +1091,6 @@ convertir-se en un procediment per a que les entitats que s’hi involucrin
 recuperin prestigi, confiança, reputació i sigui un instrument eficaç d’RSC”.
 Una anàlisi en detall dels continguts curriculars del programa (desenvolupats
 per l'IFE en col·laboració amb el Departament) constata que només aporten la
-```
-```
-110
-```
-1065
-
-1070
-
-1075
-
-1080
-
-1085
-
-1090
-
-
-```
-Novembre de 2024
-```
-```
 visió del capitalisme financer hegemònic, sense referències a altres alternatives
 econòmiques. No existeixen la banca pública, les finances ètiques o l’economia
 social, així com tampoc no s’alerta dels perills de la manca de regulació
@@ -1989,26 +1123,6 @@ L ́economia no és una ciència exacta en la interpretació dels fets i per tan
 l'anàlisi de les causes i els seus efectes. L ́economia que defensa els postulats
 neoliberals on el mercat s’autoregula i fixa les quotes d'oferta i demanda ha
 deixat un panorama desolador en la societat actual. És per tant un deure
-```
-1095
-
-1100
-
-1105
-
-1110
-
-1115
-
-1120
-
-1125
-
-
-```
-Novembre de 2024
-```
-```
 col·lectiu construir projectes socials al marge d’aquells conceptes, idees i fets
 que no han garantit l ́assoliment dels drets més elementals, pa, sostre i feina.
 Per això cal introduir elements crítics i propositius en la matèria d'Economia,
@@ -2040,32 +1154,10 @@ telemàticament, però alguns dels seus membres més actius van deixar la
 Plataforma i es va quedar sense efectius que la impulsessin. La PLEEC
 segueix existint com a plataforma, i segueix essent necessària en tant que la
 banca i les entitats privades entren sense problemes als centres públics fent
-```
-1130
-
-1135
-
-1140
-
-1145
-
-1150
-
-1155
-
-
-```
-Novembre de 2024
-```
-```
 propaganda dels seus productes; el nostre sindicat ha de seguir denunciat i
 pressionant per tal que s’acabin aquestes pràctiques.
-```
 ### 2.2.1.6. La digitalització al sistema educatiu: pantalles,
-
 ### intel·ligència artificial i capitalisme digital
-
-```
 Les primeres dècades del S.XXI passaran a la història com el període en què la
 tecnologia digital va envair tots els àmbits de la societat humana. La revolució
 digital, a més de proporcionar dispositius i estructures de serveis telemàtics,
@@ -2092,24 +1184,6 @@ valorar riscos i beneficis de l’ús de les plataformes digitals educatives. La
 pèrdua de privacitat de la infància, les desigualtats, la manca d'alfabetització
 digital, l'autonomia docent i el monopoli de corporacions com Google ha aixecat
 incertesa entre els actors educatius. En aquest context, USTEC·STEs (IAC) no
-```
-1160
-
-1165
-
-1170
-
-1175
-
-1180
-
-1185
-
-
-```
-Novembre de 2024
-```
-```
 es pot quedar al marge d’aquest procés i ha de fer front a la irrupció del
 capitalisme digital dins del sistema educatiu públic. És necessari i urgent
 reflexionar sobre l'ús i abús dels recursos digitals, tant pedagògicament, com
@@ -2142,24 +1216,6 @@ passat, d’una manera potser massa sobtada, del tecnooptimisme de les
 darreres dècades al tecnopessimisme dels darrers mesos. I està resultant un
 debat, potser massa emocional, on de cop i volta emergeixen, tot manllevant
 l’expressió d’Umberto Eco, els apocalíptics i els integrats: els detractors
-```
-1190
-
-1195
-
-1200
-
-1205
-
-1210
-
-1215
-
-
-```
-Novembre de 2024
-```
-```
 mil·lenaristes i els entusiastes acrítics de la tecnologia. Tanmateix, en aquest
 binomi de pantalles i salut emocional hi ha més cromatisme que el blanc i negre
 on s’ubica bona part de la comunitat educativa. USTEC·STEs (IAC), com a
@@ -2193,29 +1249,6 @@ sobre l’ús d’ordinadors, estris, llibres digitals i metodologies. És com s
 ajuntament pogués decidir el propi codi de circulació. El resultat: el caos. Un
 caos que té com a conseqüència una dinàmica de competitivitat entre els
 diversos centres, en una mena de cursa tecnològica per veure quin és més
-```
-```
-125
-```
-1220
-
-1225
-
-1230
-
-1235
-
-1240
-
-1245
-
-1250
-
-
-```
-Novembre de 2024
-```
-```
 innovador (i quin és el centre amb major capacitat d’atraure les famílies amb
 major capital social i cultural). Com a resultat, tenim un sistema educatiu cada
 vegada més polaritzat i desigual. Quan s’exigeix als centres i als equips
@@ -2247,24 +1280,6 @@ vam denunciar durant la pandèmia, implica un deteriorament de les condicions
 laborals del professorat, amb la multiplicació de les funcions, l’increment de la
 càrrega laboral, la desregulació dels horaris i la sensació de pèrdua de temps.
 La tecnologia prometia fer les coses més fàcils, en canvi, el o la docent d’avui
-```
-1255
-
-1260
-
-1265
-
-1270
-
-1275
-
-1280
-
-
-```
-Novembre de 2024
-```
-```
 acaba exercint la professió de manera més complicada i amb certa sensació
 d’esterilitat.
 La sisena constatació és que es registra un deteriorament de la salut emocional
@@ -2287,37 +1302,14 @@ tenir un efecte sedant, una mena de soma capaç de narcotitzar la societat,
 individualitzar-la i atomitzar-la per evitar una organització des de la base que
 permeti qüestionar un sistema incapaç de fornir de benestar i esperança a tots i
 cadascun dels infants i adolescents.
-```
 ### 2.2.1.7. Polítiques globalitzadores com a base de la
-
 ### privatització de l’educació. La liberalització absoluta de
-
 ### l’educació
-
-```
 En els últims anys, la voracitat de les multinacionals es caracteritza per la
 pressió asfixiant que fan sobre els governs per liberalitzar encara més els
 mercats i aprofundir en l’eliminació de les normatives dels estats que
 impedeixen la seva penetració i domini absolut en el comerç de béns i serveis.
 Propostes com els tractats transnacionals, que van apareixent i desapareixent
-```
-1285
-
-1290
-
-1295
-
-1300
-
-1305
-
-1310
-
-
-```
-Novembre de 2024
-```
-```
 de l’escena política i pública, a mercè dels interessos del capital, podrien
 acabar sent una realitat, supòsit en qual repercutirien negativament en la
 ciutadania en temes tant cabdals com la salut i l’educació.
@@ -2345,28 +1337,9 @@ desmantellament del sistema públic i en particular de l’educació pública,
 intensificant la nostra participació en les campanyes nacionals i internacionals
 contra aquests tractats, alhora que vetllarem per canviar la LEC perquè tanqui
 la porta definitivament a aquest despropòsit
-```
-1315
-
-1320
-
-1325
-
-1330
-
-1335
-
-
-```
-Novembre de 2024
-```
 ### 2.2.1.8. La Formació Professional al servei de les necessitats
-
 ### de la societat o de les empreses? Un pastís atractiu per a la
-
 ### seva privatització
-
-```
 A Catalunya, i a la resta de l’estat, la nova llei estatal de formació professional,
 amb els diferents reials decrets i resta de normativa que la complementen,
 comporta un canvi dràstic de paradigma del sistema de formació professional
@@ -2395,26 +1368,6 @@ Integració de la Formació Professional. Amb la paraula “integració”, la l
 avisa que, a partir de la seva entrada en vigor i el consegüent
 desenvolupament, l’FP reglada i l’FP ocupacional serà una sola, però serà allò
 que es desprèn de la paraula “ordenació” el que canvia radicalment el nostre
-```
-1340
-
-1345
-
-1350
-
-1355
-
-1360
-
-1365
-
-1370
-
-
-```
-Novembre de 2024
-```
-```
 sistema de formació professional i, de ben segur, el futur de l’accés al món
 laboral.
 La nova llei d’FP, hereva de la llei d’FP de Catalunya, però ampliada en el seu
@@ -2447,37 +1400,11 @@ testimoni del passat. De fet, l’estructuració pròpia de l’FP en un grau mi
 grau superior és suplantat per 5 graus professionals (graus A, B, C, D i E),
 difuminant les titulacions acadèmiques de tècnic i tècnic superior en un sol
 grau, el D, i presagiant la desaparició futura de les dues titulacions, la de de
-```
-```
-140
-```
-1375
-
-1380
-
-1385
-
-1390
-
-1395
-
-1400
-
-
-```
-Novembre de 2024
-```
-```
 tècnic i la de tècnic superior, esdevenint-ne una de sola desvinculant les
 titulacions acadèmiques dels diferents nivells educatius.
-```
 ### 2.2.2. Què proposem
-
 ### 2.2.2.1. Defensem l’educació pública, de la bressol a la
-
 ### universitat
-
-```
 Malgrat que en els darrers anys ha disminuït la proporció d’alumnes de centres
 concertats dins el sistema en favor de la pública, encara es manté
 vergonyosament una doble xarxa sufragada amb fons públics, que fa que la
@@ -2501,24 +1428,6 @@ puguin compensar efectivament les desigualtats d’origen, prioritzant els
 recursos per a qui més els necessita. Sense una xarxa única de titularitat i
 gestió pública, no podrem disposar mai d’igualtat d’oportunitats. Caldria
 recuperar la ILP d’Educació.
-```
-1405
-
-1410
-
-1415
-
-1420
-
-1425
-
-1430
-
-
-```
-Novembre de 2024
-```
-```
 Malauradament, constatem que, en els darrers anys, i a còpia de la LEC i els
 decrets que se’n deriven, constatem la creació d’una cultura de la competitivitat
 que fa que es parli de la “triple xarxa”. Dins de l’escola pública, molts centres
@@ -2551,30 +1460,9 @@ un temps prudencial si decideixen passar a la xarxa pública o dependre dels
 seus propis ingressos. L’existència de la concertada és un acte de
 deshonestedat cívica i de competència deslleial. Els diners públics han d’anar a
 l’educació pública. I aquests han de representar un mínim d’un 6% del PIB,
-```
-1435
-
-1440
-
-1445
-
-1450
-
-1455
-
-1460
-
-
-```
-Novembre de 2024
-```
-```
 amb prou recursos per exercir convenientment les seves responsabilitats
 davant la societat.
-```
 ### 2.2.2.1.1. Escola bressol
-
-```
 USTEC·STEs (IAC) defensa la 0-3 com una etapa educativa més, de titularitat
 i gestió pública per part de la Generalitat, organitzada a través d’una xarxa
 territorial de llars d’infants i llars d’infants rurals (amb les necessàries millores).
@@ -2584,10 +1472,6 @@ garantir ràtios equiparades a les europees. També haurien de comptar amb
 personal de suport educatiu (auxiliars d’EE-AEE, educadors d’educació
 especial-EEE) i suport de personal d’EAP per a poder atendre de manera
 inclusiva l’alumnat.
-```
-### 2.2.2.1.2. Escola rural
-
-```
 A mercè de la dinàmica de retallades i els canvis constants al capdavant de la
 conselleria d’Educació, hem vist com alguns dels aspectes qualitatius s’han
 anat deteriorant a partir de la pràctica de les diverses administracions polítiques
@@ -2603,24 +1487,6 @@ Rural com a solució per resoldre les carències que la mateixa institució caus
 Des d’ USTEC STEs defensem una escola rural per tot el territori, amb una
 organització més flexible. Cal una figura de referència al Departament.
 Treballem per aconseguir un nou Acord d’Escola Rural, la supressió de la
-```
-1465
-
-1470
-
-1475
-
-1480
-
-1485
-
-1490
-
-
-```
-Novembre de 2024
-```
-```
 sisena hora tot mantenint les plantilles, la intervenció de tots els especialistes,
 característica de l’escola rural. També ho fem per tenir dotació horària i
 reconeguda per a exercir tots els càrrecs, tant de gestió com de coordinació. A
@@ -2648,26 +1514,8 @@ singularitat, alhora que la utilitza com a banc de proves per determinades coses
 concretes fruit del seu entorn, on fa tasques, no només de formació i educació,
 sinó també de socialització estructural de municipi i d'aportació i manteniment a
 l'entorn rural.
-```
-1495
-
-1500
-
-1505
-
-1510
-
-1515
-
-
-```
-Novembre de 2024
-```
 ### 2.2.2.1.3. Una formació professional catalana de tothom i per a
-
 ### tothom
-
-```
 USTEC·STEs (IAC), des d’un primer moment, ha defensat una formació
 professional pública, de qualitat, acadèmica, polivalent i estretament lligada a la
 millora de la societat i de les persones al llarg de la seva vida, i aquesta ha de
@@ -2698,27 +1546,6 @@ Per això la figura de l’orientador de formació professional s’ha d’intro
 sistema català de l’FP pública, una adequada orientació permetrà reduir
 considerablement l’abandonament prematur en l’FP i en millorarà
 considerablement l’èxit.
-```
-```
-155
-```
-1520
-
-1525
-
-1530
-
-1535
-
-1540
-
-1545
-
-
-```
-Novembre de 2024
-```
-```
 I no ens oblidem del control del centres de formació professional privats, en
 especial els centres que ofereixen FP a distància, els quals han proliferat
 exponencialment, guanyant terreny a l’FP pública, amb les seves ofertes,
@@ -2750,26 +1577,6 @@ la qual cosa fa molt difícil una veritable mobilitat laboral de professorat.
 Ara bé, hem de seguit lluitant perquè la funció docent a l’FP no s’externalitzi i
 que les noves figures de personal col·laborador d’FP no acabin suplantant la
 figura del funcionari docent.
-```
-1550
-
-1555
-
-1560
-
-1565
-
-1570
-
-1575
-
-1580
-
-
-```
-Novembre de 2024
-```
-```
 La governança de la Formació Professional
 Fa anys que estem denunciant la voràgine privatitzadora de l’educació pública
 catalana, emanada de la LEC i que la Llei 10/2015, de 19 de juny, de Formació
@@ -2788,8 +1595,6 @@ altra que la de negociar sobre els drets del professorat. I al mateix temps, hem
 lluitat, i lluitarem fins aconseguir-ho, per formar part de l’Agència FPCat, ja que
 és aquí on es decideix sobre l’FP a Catalunya, i la comunitat educativa no hi és
 representada.
-```
-```
 La regularització laboral conforme al nivell acadèmic dels nostres titulats i
 titulades
 USTEC·STEs és un sindicat compromès amb la societat, i la formació
@@ -2802,24 +1607,6 @@ l’FP a l’hora de classificar les seves treballadores i treballadors.
 Hem d’apostar i treballar perquè les categories professionals adscrites a una
 titulació acadèmica de formació professional estiguin classificades en el grup
 professional adequat, tant en l’àmbit privat com a en l’àmbit públic.
-```
-1585
-
-1590
-
-1595
-
-1600
-
-1605
-
-1610
-
-
-```
-Novembre de 2024
-```
-```
 USTEC·STEs ha d’apostar per accentuar la lluita per la reclassificació de tot el
 personal PAE del departament d’Educació.
 La inclusió i el català com a eines de cohesió social
@@ -2847,28 +1634,9 @@ siguin vulnerats. I tot això sense d’oblidar que la principal eina integrador
 cohesionadora social a Catalunya ha estat i és la nostra llengua, el català: La
 vulneració d’aquest dret afectaria negativament la integració i la cohesió de
 l’alumnat a l’aula i a la societat en general.
-```
 ### 2.2.2.1.4. Educació de persones adultes
-
-1615
-
-1620
-
-1625
-
-1630
-
-1635
-
-
-```
-Novembre de 2024
-```
 ### 2.2.2.1.5. Les escoles oficials d’idiomes, un servei públic a
-
 ### l’abast de tothom
-
-```
 Des d’USTEC·STEs (IAC), sempre hem defensat que l’aprenentatge de les
 segones llengües a les escoles oficials d’idiomes ha de ser un servei de
 qualitat, públic i lligat a l’aprenentatge al llarg de la vida i a l’abast de tothom. La
@@ -2899,26 +1667,6 @@ llengües pròpies del territori: català i occità. Aquest va ser un primer pas
 continuar reclamant que les bonificacions no estiguessin només recollides als
 preus públics (A1, A2, C1, C2), la qual cosa significava que un estudiant de
 català no havia de pagar el doble de matrícula depenent si el curs era un A1 o
-```
-1640
-
-1645
-
-1650
-
-1655
-
-1660
-
-1665
-
-1670
-
-
-```
-Novembre de 2024
-```
-```
 un B1. Els darrers anys la nostra lluita ha estat poder corregir aquest oblit de
 l’Administració i incorporar les bonificacions a les taxes.
 Vam iniciar trobades amb els grups parlamentaris davant la ineficàcia del
@@ -2951,27 +1699,6 @@ d’aquesta retallada no hauria d’haver estar condicionada als pressupostos.
 Tanmateix, encara queden qüestions importants per abordar i que es van
 tractar a la mesa del passat febrer de 2024, amb la intenció de millorar-les. No
 hem d’oblidar que el professorat és el pilar fonamental de les EOI i que, per
-```
-```
-170
-```
-1675
-
-1680
-
-1685
-
-1690
-
-1695
-
-1700
-
-
-```
-Novembre de 2024
-```
-```
 tant, cal obrir un nou escenari per abordar les següents reivindicacions que
 neguitegen el col·lectiu:
 -La reducció del nombre d’hores dels cursos ordinaris, de les actuals 130 a les
@@ -2996,33 +1723,11 @@ La USTEC seguirà lluitant perquè el departament d’Educació vetlli per la di
 i promoció de les llengües i, en especial, de les llengües subordinades, pròpies
 i alienes, al sistema públic català, amb la necessària millora de les condicions
 laborals del professorat
-```
 ### 2.2.2.1.6. Universitats
-
 #### Les universitats com a espais de pensament crític i plural
-
-```
 Històricament, la universitat pública catalana ha estat un espai de lliure pensament i
 transformació social, basant el seu model educatiu, en la investigació, el pensament
 crític, progressista i actiu socialment. Ha vetllat per fomentar la formació de ciutadans
-```
-1705
-
-1710
-
-1715
-
-1720
-
-1725
-
-1730
-
-
-```
-Novembre de 2024
-```
-```
 compromesos i capaços de fer front als reptes d'un món cada cop més complex, amb
 l’objectiu de formar persones completes, amb una visió crítica del món, consciència i
 justícia social. A més, ha estat un important ascensor social. Ha permès a joves, de
@@ -3048,34 +1753,13 @@ lucratiu de l'educació superior, solen oferir programes d'estudi amb una exigè
 acadèmica menor i un enfocament més pragmàtic i orientat al mercat laboral. Aquesta
 visió rentista de l’educació posa en risc la qualitat educativa, soscavant els valors
 fonamentals d’un ensenyament humanista i global.
-```
 #### Defensa del sistema públic català a totes les seves etapes educatives
-
-```
 L’ensenyament universitari públic, com a espai de creació de coneixement, formació
 crítica i plural, està perfectament alineat amb els principis que ha defensat USTEC·STEs
 (IAC) durant dècades: la dignitat laboral, l'equitat, el feminisme, la laïcitat, la llengua
 catalana i un sindicalisme de classe compromès. La presència d’USTEC·STEs (IAC) a
 l’etapa universitària obriria una oportunitat per aportar una nova perspectiva al
 sindicalisme universitari. Com a sindicat de classe, USTEC·STEs (IAC) pot oferir una
-```
-1735
-
-1740
-
-1745
-
-1750
-
-1755
-
-1760
-
-
-```
-Novembre de 2024
-```
-```
 lluita més activa contra la precarització laboral, liderant la reivindicació de contractes
 estables i salaris dignes. Aquesta perspectiva de classe és fonamental per a combatre
 les creixents desigualtats laborals que afecten especialment els col·lectius més
@@ -3107,33 +1791,12 @@ USTEC·STEs (IAC) ha estat una peça clau en la defensa dels drets laborals del
 professorat a les etapes obligatòries i postobligatòries del sistema educatiu públic
 català. No obstant això, la seva influència encara no ha arribat a un àmbit fonamental
 per a la continuïtat d'aquesta tasca: les universitats públiques.
-```
-1765
-
-1770
-
-1775
-
-1780
-
-1785
-
-1790
-
-
-```
-Novembre de 2024
-```
-```
 En aquest sentit, la presència del sindicat a l'àmbit universitari es presenta com una
 necessitat estratègica per garantir la defensa integral del sistema educatiu públic
 català en totes les etapes. Unificar forces de tots els treballadors i treballadores tant
 d’etapes obligatòries com postobligatòries, permetria construir una defensa
 cohesionada del sistema educatiu públic des de l’escola bressol a la universitat.
-```
 ### 2.2.2.2. Lluitem per la gestió democràtica
-
-```
 La LEC i els decrets i normes que la despleguen és el que ha propiciat els
 mecanismes que fan que bona part de les places docents es proveeixin
 mitjançant mecanismes arbitraris i opacs. Els perfils, les entrevistes, i tot el
@@ -3159,26 +1822,6 @@ això no és possible fer-ho si l’estructura i la praxi quotidiana dels centre
 reflecteix. És per això que defensem l’erradicació d’aquestes pràctiques
 privatitzadores i jeràrquiques provinents de la LEC, i reivindiquem claustres
 democràtics, actius i deliberatius. I aquests només seran possibles si hi ha un
-```
-1795
-
-1800
-
-1805
-
-1810
-
-1815
-
-1820
-
-1825
-
-
-```
-Novembre de 2024
-```
-```
 professorat independent, destinat el centre mitjançant sistemes transparents,
 en funció de mèrits, capacitats objectivables, i en base a l’especialitat. Això
 implica la prohibició explícita d’entrevistes, que són un niu de discriminació per
@@ -3200,12 +1843,8 @@ direcció més justa, igualitària, en llibertat, hem de començar per conduir
 l’escola i l’institut com a una comunitat virtuosa, regida per valors democràtics. I
 per això caldrà continuar lluitant contra la LEC i promoure marcs legals en la
 direcció que apuntaven els valors de la ILP d’Educació.
-```
 ### 2.2.2.3. Per la millora de les condicions laborals del personal
-
 ### docent i laboral
-
-```
 USTEC·STEs sempre ha defensat una educació millor per a una societat millor.
 Amb major concreció, el nostre model educatiu és aquell que determinen els
 nostres valors: un model públic, català, democràtic, participatiu, laic,
@@ -3213,27 +1852,6 @@ coeducador i integrador. Això es tradueix en l’aposta decidida per una societ
 fonamentada en la llibertat, la igualtat, la fraternitat, la cohesió social, el
 benestar, la seguretat econòmica, l’erradicació de la pobresa i tota
 discriminació. Assolir aquests objectius requereix de determinades condicions,
-```
-```
-185
-```
-1830
-
-1835
-
-1840
-
-1845
-
-1850
-
-1855
-
-
-```
-Novembre de 2024
-```
-```
 com ara que les condicions dels treballadors i treballadores siguin sòlides, i que
 l’escola, que és un dels pilars del benestar social, és una institució fonamental
 on s’educa la totalitat de la ciutadania, estigui en les millors condicions
@@ -3266,24 +1884,6 @@ estem d’acord, que les plantilles dels centres educatius siguin el màxim
 d’estables possibles, i estem disposats a negociar solucions amb
 l’Administració per tal que així sigui. Ara bé, el que no es pot acceptar és que
 l’escola pública acabi triant el professorat com a la privada. Això és, ras i curt,
-```
-1860
-
-1865
-
-1870
-
-1875
-
-1880
-
-1885
-
-
-```
-Novembre de 2024
-```
-```
 una política més de privatització i una manera de legalitzar pràctiques corruptes
 i nepotismes.
 Pel que fa a la formació inicial del professorat, creiem que hi ha molta feina a
@@ -3310,22 +1910,6 @@ d’educació, com de fet apareix a la pròpia LEC (en una de les escasses coses
 positives, gràcies a una esmena d’USTEC·STEs). Per descomptat, els estudis
 de magisteri, com la totalitat dels estudis universitaris, d’acord amb la ILP,
 haurien de ser gratuïts.
-```
-1890
-
-1895
-
-1900
-
-1905
-
-1910
-
-
-```
-Novembre de 2024
-```
-```
 Pel que fa als estudis universitaris per a formar docents de secundària, al llarg
 dels darrers anys, hem pogut constatat com el màster de capacitació
 pedagògica també es caracteritza per un pèssim disseny i qualitat, una
@@ -3353,24 +1937,6 @@ transitòria per als esmentats treballadors i treballadores, mentrestant no pugu
 esdevenir funcionaris. Alhora, entenent que el sistema general d’accés a la
 professió és l’oposició, en defensem la revisió perquè esdevingui objectiu. Les
 mateixes mesures serien d’aplicació al personal laboral temporal.
-```
-1915
-
-1920
-
-1925
-
-1930
-
-1935
-
-1940
-
-
-```
-Novembre de 2024
-```
-```
 De manera íntimament relacionada amb l’estabilització, un dels drets
 irrenunciables és el de la mobilitat, tant geogràfica com funcional, del
 professorat i personal laboral, que a més a més, va lligat a una altre dret, el de
@@ -3401,24 +1967,6 @@ real és molt més elevada, especialment en moments com les avaluacions, o
 amb la tendència de molts a millorar professionalment en base a la formació
 continuada. És per això que ens cal posicionar fermament la jornada laboral de
 35 hores, en concurrència amb altres agents socials i cívics.
-```
-1945
-
-1950
-
-1955
-
-1960
-
-1965
-
-1970
-
-
-```
-Novembre de 2024
-```
-```
 Una de les queixes docents més recurrents al respecte és la irrellevància de
 moltes de les tasques associades a la docència. En els darrers anys,
 incomprensibles tasques burocràtiques o la inconsistència dels aplicatius
@@ -3449,27 +1997,6 @@ Menys hores de permanència en els centres, per exercir la necessària tasca de
 la reflexió individual i col·lectiva, alhora que per millorar una conciliació que en
 els darrers anys s’ha deteriorat. D’aquí la necessitat, tal com ja hem dit, de la
 jornada laboral de 35 hores.
-```
-```
-200
-```
-1975
-
-1980
-
-1985
-
-1990
-
-1995
-
-2000
-
-
-```
-Novembre de 2024
-```
-```
 Quant a les retribucions del personal que representem com a sindicat, cal dir
 que ens caldrà defensar, en aquesta nova etapa que encetem, la recuperació
 del poder adquisitiu arrabassat, tal com s’exposa més endavant en els objectius
@@ -3499,32 +2026,13 @@ públiques amb competències educatives, com el cas del Departament
 d’educació, habilitar la possibilitat que el personal PAE pugui optar també a la
 jubilació voluntària a la mateixa edat que els docents, la qual no ha de ser una
 altra que als 60 anys d’edat.
-```
-2005
-
-2010
-
-2015
-
-2020
-
-2025
-
-
-```
-Novembre de 2024
-```
-```
 I això vols dir, que no hem de caure en el parany a què sindicats-empresa, com
 UGT i CCOO, volen abocar a tots els treballadors i treballadores públics amb el
 desenvolupament generalitzat de la jubilació parcial, qüestió que aquestes
 entitats ja van pactar amb el govern espanyol ara fa tres anys, que suposaria
 acceptar un sistema de jubilació propi del món empresarial i que s’allunya
 descaradament de la realitat del món educatiu.
-```
 ### 2.2.2.4. Jornada lectiva
-
-```
 La jornada lectiva, tant a primària com a secundària, tradicionalment ha estat
 una qüestió controvertida. Hi juguen, més que interessos, visions incompatibles
 sobre el paper de l’ús del temps dels alumnes, famílies i professorat, i hi pesa
@@ -3548,24 +2056,6 @@ només una ínfima minoria d’estats que opten per partir la jornada lectiva
 perllonguen les classes més enllà de les 15.30h. De fet, a la UE, la mitjana
 d’inici i acabament de les activitats lectives es troba entre les 8.30 i les 14.30
 hores.
-```
-2030
-
-2035
-
-2040
-
-2045
-
-2050
-
-2055
-
-
-```
-Novembre de 2024
-```
-```
 A Catalunya, segons dades del Departament poc més d’un parell de dotzenes
 de centres públics de primària fan jornada compactada, a títol experimental, i
 en el marc d’un pla pilot pendent d’ésser avaluat. Malgrat tenir un valoració
@@ -3597,26 +2087,6 @@ les famílies que volen i poden conciliar, i també per a molts alumnes que
 prefereixen passar més temps en família, en un entorn més protegit i personal,
 o que també prefereixen alternar l’ambient de l’escola amb altres activitats
 extraescolars allunyades del seu entorn educatiu pròxim.
-```
-2060
-
-2065
-
-2070
-
-2075
-
-2080
-
-2085
-
-2090
-
-
-```
-Novembre de 2024
-```
-```
 Des d’un punt de vista educatiu, no hi ha cap estudi ni recerca acadèmica fiable
 ni concloent que determini que un model de jornada, des de la perspectiva dels
 resultats educatius, sigui superior. El Departament, d’altra banda, no ha
@@ -3649,24 +2119,6 @@ horari compactat. El 95% dels docents de secundària, és a dir, 19 de cada 20,
 són partidaris de concentrar l’horari lectiu.
 És evident que, a banda dels aspectes pròpiament educatius i professionals,
 existeixen altres factors de caràcter més social. Un dels temors que s’havien
-```
-2095
-
-2100
-
-2105
-
-2110
-
-2115
-
-2120
-
-
-```
-Novembre de 2024
-```
-```
 expressat en el si del sindicat sobre aquesta qüestió era que la persistència de
 la jornada continuada a la xarxa concertada podria haver implicat una fugida de
 les famílies dels centres públics. A partir de l’experiència de la implantació en la
@@ -3699,27 +2151,6 @@ per institucions públiques, gestionades de manera directa, que esdevinguin un
 jaciment d’ocupació pública i de qualitat, i gratuïtes per a la ciutadania en el
 sentit que és la gratuïtat la que assegura la universalitat, i que pot servir per
 cohesionar comunitats locals i educatives.
-```
-```
-215
-```
-2125
-
-2130
-
-2135
-
-2140
-
-2145
-
-2150
-
-
-```
-Novembre de 2024
-```
-```
 Entenem que la qüestió del model de jornada i dels horaris educatius reglats
 han de ser fruit d’un debat en què calgui que la comunitat educativa (això és,
 alumnes, famílies, docents) busquin un acord. Que aquest acord, fins i tot en la
@@ -3736,12 +2167,8 @@ reduir la jornada a 32 hores (la setmana de quatre dies) o 30 hores setmanals.
 Des del nostre sindicat tenim clar que aquesta possibilitat és una forma de
 millorar les condicions laborals dels treballadors i un pilar de benestar individual
 i col·lectiu.
-```
 ### 2.2.2.5. Avaluació del professorat vs. desenvolupament
-
 ### professional docent
-
-```
 En contraposició al model d’avaluació del professorat que el departament
 d’Educació ha anat implantant al sistema educatiu (vegeu punt 1.2.3),
 USTEC·STEs proposa el Desenvolupament Professional Docent, partint de la
@@ -3753,24 +2180,6 @@ millora de la qualitat educativa, des de l’accés a la funció pública docent
 la jubilació. L’Administració educativa competent hauria de planificar i oferir,
 d’acord amb la part social, un cartipàs complet de formació ajustada a les
 necessitats professionals docents i més enllà encara.
-```
-2155
-
-2160
-
-2165
-
-2170
-
-2175
-
-2180
-
-
-```
-Novembre de 2024
-```
-```
 Entenem que el Desenvolupament Professional Docent hauria de començar
 abans d’accedir a la funció pública docent, amb itineraris de formació
 pedagògica per als estudiants de graus universitaris d’especialitats no
@@ -3802,26 +2211,7 @@ polítics, i l’absència de mecanismes de control de les decisions preses des 
 l’administració.
 Per tot el que s’ha exposat anteriorment, defensem el nostre model de
 Desenvolupament Professional Docent (vegeu punt 1.2.2
-```
-2185
-
-2190
-
-2195
-
-2200
-
-2205
-
-2210
-
-
-```
-Novembre de 2024
-```
 ### 2.2.2.6. Model lingüístic
-
-```
 És ben conegut el posicionament mantingut per USTEC·STEs respecte al
 català com a llengua d’ús i d’aprenentatge en tots els nivells del nostre sistema
 educatiu. Des del primer moment, hem defensat una escola pública i nacional,
@@ -3853,26 +2243,6 @@ importants des de l’ordre pedagògic, funcional i, sobretot, convivencial.
 Aquestes sentències han recaigut tant al damunt centres públics com
 concertats, sense importar l’efecte ocasionat dins del grup classe, i han obligat
 tot l’alumnat d’aquell grup a canviar de llengua vehicular, cosa que ha generat
-```
-2215
-
-2220
-
-2225
-
-2230
-
-2235
-
-2240
-
-2245
-
-
-```
-Novembre de 2024
-```
-```
 en alguns casos resistències per part de les famílies que volien per als seus fills
 l’escolarització en català
 El departament d’Educació, a més a més, no ha fet l’acompanyament
@@ -3901,39 +2271,15 @@ redefinir el rang que ha de tenir la Comissió Lingüística dins l’estructura
 sindicat, per tal de fer més influents i incisius els seus treballs.
 La nostra actuació externa passa, en bona part, per la presència en les
 diferents instàncies de treball on participem, que són:
-```
 ### 1. Protocol d’acció conjunta dels tres sindicats majoritaris a l’escola pública
-
-```
 del País Valencià, les Illes i Catalunya. Des de fa anys, els tres sindicats:
 STEPV, STEi i USTEC·STEs (IAC) mantenim una gran coordinació en
-```
-2250
-
-2255
-
-2260
-
-2265
-
-2270
-
-2275
-
-
-```
-Novembre de 2024
-```
-```
 la defensa de la nostra llengua comuna. Hem celebrat reunions
 periòdiques, hem editat publicacions i ens hem manifestat públicament
 en totes les ocasions requerides. En les diferents instàncies unitàries on
 som presents, som el referent sindical del moviment en defensa de la
 llengua catalana.
-```
 ### 2. Plataforma d’entitats educatives SomEscola, des dels seus inicis, de les
-
-```
 xarxes públiques i privades concertades, de l’educació formal i la del
 lleure, entitats culturals i de defensa de la llengua, associacions
 professionals, d’escriptors, etc. Somescola s’ha anat consolidant com un
@@ -3944,10 +2290,7 @@ immersió lingüística, va ser molt bel·ligerant contra la LOMCE i els atacs
 del Govern espanyol contra l’escola catalana. Va aconseguir un gran èxit
 de mobilització el juny de 2014 amb la concentració al passeig Lluís
 Companys de Barcelona.
-```
 ### 3. Enllaçats per la Llengua, plataforma dels Països Catalans on els tres
-
-```
 sindicats, STEPV, STEi i USTEC·STEs , treballem al costat d’altres
 entitats d’àmbit territorial de tota la comunitat lingüística catalana. Va
 néixer al voltant de les lluites contra el TIL a les Illes Balears i en va
@@ -3955,43 +2298,16 @@ assumir el lema i les simbologies. A més de realitzar campanyes i
 trobades de tipus més local, es reuneix i participa cada any a Castelló de
 la Plana, dins dels actes al voltant de l’aniversari de les Normes de
 Castelló i en les quals nosaltres hi som presents.
-```
 ### 4. FOLC, Federació Entitats per la Llengua Catalana, de caràcter global de
-
-```
 Països Catalans, amb la presència dels tres sindicats enllaçats per la
 llengua (STEPV, STEi i USTEC·STEs). Reuneix també entitats i grups
 d’acció per la llengua, produeix material de difusió, com l’exposició que
 USTEC·STEs ha fet córrer per diversos territoris a partir de les
 Jornades de Sitges de gener de 2017. Per la seva composició
 organitzativa té capacitat d’intervenir en els debats acadèmics i en la
-```
-```
-230
-```
-2280
-
-2285
-
-2290
-
-2295
-
-2300
-
-2305
-
-
-```
-Novembre de 2024
-```
-```
 creació d’opinió pública sobre diferents aspectes de la nostra realitat
 lingüística.
-```
 ### 5. Trobades conjuntes amb altres sindicats afins arreu de l’estat espanyol
-
-```
 en defensa de les llengües minoritzades i definint la nostra posició en
 contra dels intents d’introducció en tots els territoris amb llengua pròpia
 de pràctiques plurilingüistes que comporten la minorització i
@@ -4017,26 +2333,7 @@ que contradiu les seves pròpies manifestacions públiques i normativa, que fa
 recaure el pes de les sancions damunt els centres i els docents. Caldrà fer
 també l’acompanyament com a sindicat dels centres i treballadors públics
 afectats i, si cal, personant-nos judicialment.
-```
-2310
-
-2315
-
-2320
-
-2325
-
-2330
-
-2335
-
-
-```
-Novembre de 2024
-```
 ### 2.2.2.7. Educació feminista. Impuls a la coeducació
-
-```
 Des dels nostres orígens, USTEC·STEs considera la coeducació com un dels
 seus pilars bàsics, eina imprescindible per a l’erradicació del sexisme i de la
 discriminació de gènere. Malauradament, les polítiques educatives vigents,
@@ -4068,24 +2365,6 @@ activat amb un mínim de recursos i sense la nostra participació (tot i haver
 demanat en múltiples ocasions que volíem participar en el seu disseny). Com
 amb altres documents del propi Departament, el programa no deixa de ser un
 document més d’una sèrie on estableixen uns objectius, però que, al final, quan
-```
-2340
-
-2345
-
-2350
-
-2355
-
-2360
-
-2365
-
-
-```
-Novembre de 2024
-```
-```
 es trasllada a la realitat, com que no s’hi aboquen recursos, té una efectivitat
 mínima.
 Hi ha evidències clares del retrocés que estan experimentant els adolescents
@@ -4118,26 +2397,6 @@ Per tot això ens cal que la coeducació esdevingui un eix transversal en el
 currículum educatiu, que permeti educar des de la diversitat, en la riquesa i
 igualtat d’oportunitats i, d’aquesta manera, prevenir les violències masclistes.
 Aquest eix transversal no hauria de quedar en l’oblit a causa de les noves
-```
-2370
-
-2375
-
-2380
-
-2385
-
-2390
-
-2395
-
-2400
-
-
-```
-Novembre de 2024
-```
-```
 pràctiques “innovadores”. USTEC·STEs continuarà treballant per tal que
 esdevingui una realitat que possibiliti un veritable canvi social. Des
 d'USTEC·STEs entenem que l'educació ha de ser el motor de canvi, que
@@ -4171,24 +2430,6 @@ aquestes han de tenir lloc dins l’àmbit privat i que mai no han de formar par
 dels currículums educatius.
 Creiem i defensem que cap Govern no pot planificar el sistema educatiu cedint
 a les pressions de cap confessió religiosa, sigui quina sigui. Per això la
-```
-2405
-
-2410
-
-2415
-
-2420
-
-2425
-
-2430
-
-
-```
-Novembre de 2024
-```
-```
 denúncia del Concordat amb l’Església Catòlica de 1956, dels acords amb la
 Santa Seu de 1976 i 1979 i de la Llei 26/1992, de 10 de novembre, per la qual
 s’estableix un acord amb la Comissió Islàmica d’Espanya, que suposen clares
@@ -4219,27 +2460,6 @@ deriva creixentment comunitarista que persegueix l’atomització social. Ans al
 contrari, l’escola ha de servir per crear un sentit de comunitat ampli, al marge
 de les religions, que haurien d’ubicar-se a l’àmbit de la privacitat. I això només
 es pot fer en un laïcisme al qual cal donar un nou impuls.
-```
-```
-245
-```
-2435
-
-2440
-
-2445
-
-2450
-
-2455
-
-2460
-
-
-```
-Novembre de 2024
-```
-```
 Tenim per davant temps difícils, en què les creences religioses poden
 esdevenir el refugi d’un pensament reaccionari, en base a la recerca d’identitats
 fortes en una societat cada vegada més polaritzada i on l’ombra de la ultradreta
@@ -4247,10 +2467,7 @@ cada vegada és més allargada. És per això que convidem la comunitat
 educativa a implicar-se en aquesta lluita per una laïcitat necessària i a un major
 compromís del sindicat per fer front als desafiaments que se’ns planten al
 davant.
-```
 ### 2.2.2.9. Educació inclusiva
-
-```
 Sovint hom situa el debat de la inclusió escolar en el col·lectiu de l’alumnat amb
 necessitats educatives especials (NEE) i creu que la principal discussió rau en
 com hem d’atendre aquest alumnat i en les possibilitats reals d’incloure’l als
@@ -4274,24 +2491,6 @@ punt de partida, i en primer lloc hem d’explicitar de què parlem quan diem
 comparteixi el significat del concepte, de cara a establir un punt de partida que
 ens permeti debatre amb garanties aquest gran repte de l’educació en els
 propers anys i ens possibiliti detectar les mancances dels sistema i determinar
-```
-2465
-
-2470
-
-2475
-
-2480
-
-2485
-
-2490
-
-
-```
-Novembre de 2024
-```
-```
 (lluitar i negociar) per unes polítiques educatives eficients i necessàries per a
 l’assoliment d’un sistema educatiu cada cop més inclusiu.
 L’escola inclusiva és aquella en la qual tot l’alumnat se sent acollit, atès i
@@ -4318,29 +2517,11 @@ Cooperació i el Desenvolupament Econòmic), la UNESCO (Organització de les
 Nacions Unides per l’Educació, la Ciència i la Cultura) i en les nostres lleis
 educatives (LOMLOE, LEC). A tall d’exemple, recollim alguns d’aquests
 principis:
-```
 - La inclusió és un procés de dirigir i respondre a la diversitat de
     necessitats de tots els alumnes (UNESCO 2005)
 - Inclusió i equitat s'erigeixen en principis generals que ha de regir totes
     les polítiques, plans, estratègies i pràctiques educatives (UNESCO
     2017)
-
-2495
-
-2500
-
-2505
-
-2510
-
-2515
-
-2520
-
-
-```
-Novembre de 2024
-```
 - La inclusió ha d’assegurar i garantir el dret de tots els nens a l’accés,
     presència, participació i progrés a l’escola (UNESCO: Informe Slee
     2018).
@@ -4370,24 +2551,6 @@ societat segregada. És quelcom a què no podem renunciar.
 El sistema educatiu d’un país no és una institució qualsevol o menor. Ha
 d’exercir una funció educativa i social de primer ordre, ha de vetllar pels
 principis democràtics i ètics d’una societat com la nostra. Ha de garantir la
-
-2525
-
-2530
-
-2535
-
-2540
-
-2545
-
-2550
-
-
-```
-Novembre de 2024
-```
-```
 igualtat d’oportunitats de totes les persones, erigir-se en motor i agent
 transformador cap una societat més justa i inclusiva.
 La inclusió, igual que l’equitat, només són indicadors de la qualitat d’un sistema
@@ -4420,45 +2583,18 @@ definir un sistema educatiu inclusiu, apunta aquelles accions que caldrà portar
 a terme per a desplegar la inclusió escolar i categoritza, de forma clara, les
 mesures i suports que cal implementar (tipologia). És el punt de partida,
 establint la norma i l’obligació per part del departament d’Educació
-```
-2555
-
-2560
-
-2565
-
-2570
-
-2575
-
-2580
-
-
-```
-Novembre de 2024
-```
-```
 d’encaminar-nos de forma decidida a un sistema educatiu inclusiu. Així, doncs,
 explicita tres tipus de mesures i suports que caldria desplegar:
-```
 ### 1. Mesures i suports universals: accions i pràctiques que permeten
-
-```
 flexibilitzar el context d’aprenentatge, de cara a facilitar estratègies
 d’accés a l’aprenentatge i la participació de l’alumnat. Pensades per al
 benefici del 100% de la població escolar.
-```
 ### 2. Mesures i suports addicionals: atenció específica per a ajustar la
-
-```
 resposta educativa de forma flexible i temporal a l’alumnat que ho
 requereix, un cop s’han aplicat les mesures i suports universals.
 Pensades per a donar resposta entorn al 20 % de la població escolar
 (aquest percentatge, en aquests moments, es percep superior)
-```
 ### 3. Mesures i suports intensius: actuacions educatives extraordinàries que
-
-```
 es duen a terme quan les mesures i suports universals i addicionals no
 són suficients. Són accions d’alta intensitat i de llarga durada. Pensades
 per a donar resposta entorn un 5% de la població escolar.
@@ -4471,7 +2607,6 @@ necessàries per a donar resposta a la població escolar més vulnerable, els
 alumnes amb necessitats educatives especials. No obstant això, quan s’ha
 interpel·lat el Departament, sempre ha afirmat que s’ha avançat en un sistema
 educatiu inclusiu. Això és totalment fals. Exposem els nostres arguments:
-```
 1. No n’hi ha prou a crear un recurs o un suport. Cal assegurar que aquest
     sigui inclusiu. Les actuals SIEI (el suport que s’ha implementat de forma
     més evident) no són suports inclusius, són suports integratius! La
@@ -4479,27 +2614,6 @@ educatiu inclusiu. Això és totalment fals. Exposem els nostres arguments:
     moment (un/a mestre/a d’educació especial i un/a educador/a d’educació
     especial per primària; 1,5 orientadors educatius i un/a educador/a
     d’educació especial a secundària) és totalment insuficient per a unes
-
-```
-260
-```
-2585
-
-2590
-
-2595
-
-2600
-
-2605
-
-2610
-
-
-```
-Novembre de 2024
-```
-```
 ràtios de 8-10 alumnes. Podem garantir la presència d’aquest alumnat
 als centres educatius, però en cap cas garantir la participació i el progrés
 en un context d’aula ordinària, conceptes essencials per a la inclusió real
@@ -4508,7 +2622,6 @@ possibilitar una coordinació entre els especialistes de la SIEI i els
 mestres, professorat i tutors no existeixen. El funcionament d’aquest
 suport, al final, obeeix a una tasca de bona voluntat per part de docents i
 personal laboral d’atenció educativa.
-```
 2. On són les mesures universals? Aquestes mesures són imprescindibles
     per a donar resposta a tot l’alumnat. I les mesures i suports addicionals?
     El Departament les ha oblidat. Aquestes mesures i suports han de
@@ -4533,37 +2646,13 @@ pedagogia. D’explicitar de què parlem quan diem mesures i suports universals.
 De contextualitzar-les als centres educatius, per a valorar-les de forma curosa,
 per a evidenciar la seva importància, per a convertir els centres educatius en
 llocs on realment es pugui treballar de forma digna, on els alumnes siguin
-
-2615
-
-2620
-
-2625
-
-2630
-
-2635
-
-2640
-
-2645
-
-
-```
-Novembre de 2024
-```
-```
 atesos de forma adequada i on els docents i personal laboral PAE pugui exercir
 i desenvolupar les seves funcions i les seves tasques amb garanties d’èxit i
 salut laboral. El Departament d’Educació, per manca de planificació, per manca
 de capacitat, per manca de pressupost i per manca de voluntat, no ha
 possibilitat que els centres educatius les puguin desplegar i implementar.
-```
 ### 3. Com ho fem? Acció sindical
-
 ### 3.1. Balanç del cicle 2017-2014
-
-```
 Si ens situem en el darrer congrés de la USTEC·STEs, celebrat a Lleida el
 2017, podem afirmar que el cicle polític fins a arribar al 2024 ha estat marcat
 per la continuació de les lluites que ja estaven en marxa aleshores: contra la
@@ -4586,24 +2675,6 @@ l’any 2016, juntament amb moltes altres entitats i amb l’aval de gairebé 10
 firmes, perquè Catalunya disposés d’una llei educativa que beneficiés a tota la
 societat. El lideratge d’USTEC·STEs en ambdós casos es va traduir en el major
 suport electoral que mai ha tingut el sindicat, a les eleccions de 2019.
-```
-2650
-
-2655
-
-2660
-
-2665
-
-2670
-
-2675
-
-
-```
-Novembre de 2024
-```
-```
 Des d’aleshores, des del passat congrés el 2017, USTEC·STEs, hem liderat la
 unitat sindical per la reversió de les retallades, en les negociacions laborals i en
 l’impuls de les mobilitzacions unitàries al llarg del període 2017-2024. També
@@ -4635,24 +2706,6 @@ va obrir les portes a la introducció del concurs de mèrits i altres mesures
 d’estabilització dintre del text, que va desembocar en la llei 20/2021, de 28 de
 desembre, de Mesures Urgents per a la Reducció de la Temporalitat a
 l’Ocupació Pública.
-```
-2680
-
-2685
-
-2690
-
-2695
-
-2700
-
-2705
-
-
-```
-Novembre de 2024
-```
-```
 També durant el curs 20-21, destaca la manifestació del 18 de desembre de
 2021, organitzada per Som Escola, i la vaga pel català del 23 de març i la
 manifestació del 2 d’abril contra la sentència del 25%, organitzades des de la
@@ -4686,24 +2739,6 @@ departament és rebutjada també per la part social i això suposa que es
 congelen les negociacions fins a final de curs. La represa de les negociacions
 ve a partir de l’acord per establir una moratòria de dos cursos a la presencialitat
 del juliol, una proposta que USTEC·STEs fem a la Mesa Sectorial i que és
-```
-2710
-
-2715
-
-2720
-
-2725
-
-2730
-
-2735
-
-
-```
-Novembre de 2024
-```
-```
 acceptada per l’Administració. Les negociacions per a un acord global de
 reversió de retallades continuen i s’arriba a estar molt a prop de tancar el pacte;
 no obstant això, els mals resultats d’ERC a les eleccions municipals i el desgast
@@ -4722,10 +2757,7 @@ la nova consellera van decidir congelar les negociacions amb els sindicats amb
 l’excusa de la manca de previsió pressupostària. Mentrestant, van augmentar en
 més de 90 milions d’euros el pressupost per a la concertada i van destinar més
 de 55 milions als xecs per a material escolar. Per això USTEC·STEs,
-```
 ### conjuntament amb CGT i Intersindical-CSC, vam convocar la vaga del dia 6 de
-
-```
 setembre del 23, malgrat que teníem prou informacions per saber que no tindria
 seguiment. No obstant això, la vam convocar perquè vam considerar que calia
 començar el curs visibilitzant que el conflicte laboral no estava resolt. El fracàs de
@@ -4739,28 +2771,6 @@ El desembre de 2023 es van reprendre les meses de negociació que, després
 de múltiples trobades, portarien a l’acord parcial de reversió de retallades
 signat entre l’Administració i CCOO i UGT, el 25 de gener de 2024.
 USTEC·STEs no vam signar l'acord per diverses raons:
-```
-```
-275
-```
-2740
-
-2745
-
-2750
-
-2755
-
-2760
-
-2765
-
-2770
-
-
-```
-Novembre de 2024
-```
 1. Tot i algunes concessions, el text mantenia retallades vigents (deute dels
 estadis, 2 hores als majors de 55 anys retornat parcialment, etc.) i no oferia
 garanties de compliment, ja que depenia de l'aprovació dels pressupostos de la
@@ -4791,23 +2801,6 @@ l’estratègia combinada de pressió parlamentària, mobilització i acció jur
 Algunes de les fites assolides amb la lluita els darrers anys:
     - Eliminació dels terços de jornada, que han tornat a mitja dedicació.
     - Retorn a l’horari original de permanència a secundària (24 hores).
-
-2775
-
-2780
-
-2785
-
-2790
-
-2795
-
-2800
-
-
-```
-Novembre de 2024
-```
 - Acords del gener del 2017: retorn de la primera hora lectiva i 4.700
     dotacions, i del setembre del 2022: retorn de la segona hora lectiva i
     3.600 dotacions.
@@ -4834,22 +2827,6 @@ Ara es fa necessari iniciar un nou cicle de lluita per a continuar reivindicant
 millores en l'educació pública i les condicions laborals. Això inclou augmentar la
 inversió en educació al 6% del PIB, eliminar la segregació educativa, recuperar
 la democràcia als centres i millorar les condicions laborals dels docents i
-
-2805
-
-2810
-
-2815
-
-2820
-
-2825
-
-
-```
-Novembre de 2024
-```
-```
 personal laboral, com la reducció de la burocratització, la recuperació del poder
 adquisitiu i l'estabilització total de les plantilles.
 El discurs d’USTEC·STEs, radicalment en contra d’aquest conjunt de decrets
@@ -4866,14 +2843,9 @@ pilars que marquen els nostres estatuts: català, unitari, democràtic,
 independent, de classe, plural, progressista, de funcionament assembleari i no
 sexista. I que la defensa d’aquests valors s’ha de traduir en els nostres
 esforços, les nostres decisions i la priorització d’ús dels nostres recursos.
-```
 ### 3.2. Recursos que tenim
-
 ### 3.2.1. Realitat de l'afiliació
-
 ### 3.2.1.1. Evolució de l’afiliació i reptes de futur
-
-```
 USTEC·STEs ha crescut molt en afiliació des del darrer congrés. El bon
 lideratge exercit contra la LEC, la defensa dels drets nacionals durant els anys
 del procés, la lluita per a revertir les retallades i en defensa de l’educació
@@ -4883,24 +2855,6 @@ puguem mantenir la nostra independència econòmica i política i que molts
 projectes del sindicat puguin tirar endavant. La nostra independència com a
 organització es deu fonamentalment al sosteniment econòmic que aporta la
 nostra afiliació. Aquesta és una idea que cal repetir constantment a tots els
-```
-2830
-
-2835
-
-2840
-
-2845
-
-2850
-
-2855
-
-
-```
-Novembre de 2024
-```
-```
 centres, perquè és el que fonamenta la confiança entre el sindicat i treballadors
 i treballadores.
 No obstant això, els darrers anys hem patit un cert estancament en el nombre
@@ -4911,7 +2865,7 @@ si aquesta realitat no s’aborda amb temps. És per aquest motiu que es fa
 necessari tenir, com a sindicat madur i que ha crescut i evolucionat molt els
 darrers anys, una política d’afiliació comuna. En aquest sentit, tenim el repte
 d’impulsar diverses línies de treball:
-```
+
 - Fer efectiva una base de dades única, en els termes que preveuen els
     estatuts; això és que les dades bancàries de l’afiliació han d’estar
     custodiades exclusivament per les persones responsables de finances
@@ -4934,23 +2888,6 @@ d’impulsar diverses línies de treball:
     butlleta de paper. En qualsevol cas, caldrà informar les persones
     peticionàries d’afiliació que aquesta es farà efectiva, previ vistiplau de la
     secció intercomarcal de pertinença.
-
-2860
-
-2865
-
-2870
-
-2875
-
-2880
-
-2885
-
-
-```
-Novembre de 2024
-```
 - A les darreres eleccions sindicals, el cens de docents superava les
     90.000 persones, mentre que l’afiliació total al nostre sindicat es mou
     globalment al voltant del 7,5%, per bé que amb realitats dispars entre
@@ -4972,10 +2909,7 @@ Novembre de 2024
        - Presència a les facultats d’educació i a les que imparteixen els
           màsters de formació al professorat, per tal de fer-hi xerrades i
           repartir informació sobre el sindicat.
-
 ### 3.2.1.2. Millora de l’atenció a l’afiliació
-
-```
 Una de les assignatures pendents del sindicat envers l’afiliació és garantir-li un
 tracte diferenciat, cosa que reconegui el seu compromís amb l’organització.
 Aquest tracte diferenciat s’ha de fonamentar en dues potes per igual: d’una
@@ -4983,33 +2917,11 @@ banda, una millor atenció i serveis, i de l’altra, garantir la seva presa en
 consideració i participació en les decisions del sindicat.
 Si ens centrem en l’atenció diferenciada a l’afiliació, cal dir que actualment es
 limita a l’assessorament jurídic, el càlcul de la pensió i l’enviament de més
-```
-```
-290
-```
-2890
-
-2895
-
-2900
-
-2905
-
-2910
-
-2915
-
-
-```
-Novembre de 2024
-```
-```
 correus electrònics informatius que a la resta de membres del col·lectiu. Fins i
 tot s’han reduït alguns dels elements distintius que caracteritzaven el tracte a
 l’afiliat/da com l’enviament en paper de les principals publicacions.
 Resulta urgent, per tant, definir i reforçar allò que oferim a l’afiliació pel fet de
 ser-ho:
-```
 - En primer lloc, cal pensar en formes d’atenció preferent, la intranet pot
     ser una eina, però es pot debatre si establim mecanismes per a prioritzar
     els afiliats en l’atenció telefònica, ja sigui des del telèfon de les seus o bé
@@ -5028,33 +2940,12 @@ ser-ho:
     democràcia als centres, neoliberalisme educatiu, educació inclusiva, etc.
     són formacions que poden interessar a la nostra afiliació i que no cauen
     en la lògica pròpia de les acadèmies i sindicats grocs.
-
 ### 3.2.1.3. La participació de l’afiliació
-
-```
 Malauradament, disposem d’una afiliació que tendeix a ser poc activa i
 participativa. Això es pot deure tant al perfil dels nous afiliats com a les
 dinàmiques del sindicat, que no faciliten aquesta participació. Aquest fet suposa
 que sovint la implicació, aportacions i presa de decisions es va derivant en les
 persones amb llicència sindical.
-```
-2920
-
-2925
-
-2930
-
-2935
-
-2940
-
-2945
-
-
-```
-Novembre de 2024
-```
-```
 Com a organització, hauríem de fer un esforç per invertir aquest procés. Cal
 promoure, per tant, l’existència de canals fluïds d’informació, participació i
 presa de decisions que ajudi afiliats i afiliades a sentir USTEC·STEs una
@@ -5078,7 +2969,6 @@ en el centre i organitzar tant xerrades informatives com assemblees i
 mobilitzacions.
 Hi ha diverses mesures que poden servir per a reactivar l’afiliació i facilitar la
 seva participació:
-```
 - Reimpulsar les assemblees territorials d’afiliació, establint-ne una
     periodicitat clara, convocar-les amb un ordre del dia que sigui atractiu i
     de l’interès de l’afiliació (política educativa, acció sindical) i no de tipus
@@ -5088,23 +2978,6 @@ seva participació:
     tipus deliberatiu, com són les conferències nacionals periòdiques per
     aprofundir en alguns dels debats viu dins el sindicat, ja sigui amb
 
-2950
-
-2955
-
-2960
-
-2965
-
-2970
-
-2975
-
-
-```
-Novembre de 2024
-```
-```
 mecanismes de democràcia directa per a la presa de decisions: les
 consultes a l’afiliació poden ser un mecanisme que faci sentir als afiliats
 que participen en decisions rellevants del sindicat.
@@ -5115,10 +2988,7 @@ que participen en decisions rellevants del sindicat.
 Cal tenir en compte que la participació funciona sempre com un cercle virtuós.
 Com més mecanismes, canals i periodicitat en la participació, més fàcil és que
 es generi una cultura participativa entre la nostra afiliació.
-
 ### 3.2.2. Persones actives als centres, als claustres i a la societat
-
-```
 Cal restar pendents dels professionals més actius i potenciar-hi el contacte per
 dinamitzar i organitzar centres educatius. Aquest personal pot ajudar a entrar
 en contacte amb la resta del claustre per a resoldre situacions, dubtes,
@@ -5138,24 +3008,6 @@ col·laborar-hi per a seguir participant de les diverses lluites que tenen com a
 objectiu millorar la societat més enllà del nostre sector. L’actuació sindical
 conjunta, en el marc de la IAC o més enllà, ens hauria de possibilitar fomentar i
 ampliar el contacte amb persones, col·lectius, sindicals alternatius i
-```
-2980
-
-2985
-
-2990
-
-2995
-
-3000
-
-3005
-
-
-```
-Novembre de 2024
-```
-```
 reivindicatius, amb qui podem establir relacions i aliances tàctiques i
 estratègiques, ja sigui en conflictes concrets, ja sigui en plataformes on
 compartir objectius i lluites, com pot ser les marxes de la dignitat. També,
@@ -5163,10 +3015,7 @@ mitjançant el nostre paper dins la IAC, si escau, hauríem de potenciar la
 dimensió europea i internacional, a partir dels contactes transfronterers amb
 organitzacions i activistes afins, per tractar de treballar conjuntament per a una
 Europa i un món millor, tant a escala local com a escala global.
-```
 ### 3.2.3. Persones amb llicència sindical
-
-```
 Avui vivim una situació difícil per al sindicalisme en general i per a
 USTEC·STEs en particular. Els baixos percentatges d’afiliació, processos de
 mobilització que no aconseguim mantenir en el seu punt àlgid, la incorporació
@@ -5189,24 +3038,6 @@ nacionals. Cal que disposin de coneixements amplis de les normatives generals
 més utilitzades, sense perdre de vista que, per a altres de més específiques, el
 sindicat ha de tenir les persones més enteses en la matèria com a referència.
 És necessari, a més a més, que les persones amb llicència sindical, a banda
-```
-3010
-
-3015
-
-3020
-
-3025
-
-3030
-
-3035
-
-
-```
-Novembre de 2024
-```
-```
 dels coneixements tècnics, tinguin la capacitat d’interpretar les normatives i
 actuacions de l’Administració, i mostrin empatia i sensibilitat a l’hora de resoldre
 els problemes i les consultes que es facin al sindicat. Cal remarcar, que cada
@@ -5240,27 +3071,6 @@ com el pòdcast, taules de debat que es puguin enregistrar i penjar en
 espais/plataformes digitals. En aquest sentit, d’avançar en la formació sindical
 de les persones amb llicència sindical, no només en els aspectes tècnics, sinó
 també en aspectes educatius, socials i polítics. És necessari incorporar
-```
-```
-305
-```
-3040
-
-3045
-
-3050
-
-3055
-
-3060
-
-3065
-
-
-```
-Novembre de 2024
-```
-```
 anualment formació obligatòria per les persones amb llicència, especialment de
 tipus “ideològica” i tècnica gratuïta a la nostra afiliació.
 Cal potenciar, a tots els territoris, la participació en els moviments socials, així
@@ -5283,34 +3093,13 @@ de les línies marcades pel conjunt del sindicat. És per això que ens convé
 mantenir contactes, tant en grups com individuals, amb l’afiliació, bé convocant
 reunions periòdiques en centres, zones o comarques, bé en les visites i
 xerrades a centres.
-```
 ### 3.2.4. La formació interna i externa de les nostres bases
-
-```
 La Secretaria de Formació ha de ser un espai obert i dinàmic, alineat amb el
 treball de les diferents secretaries i grups de treball del sindicat. Aquesta
 secretaria ha de fer la formació continuada dels membres del sindicat i de
 l’afiliació, a partir del discurs i idees generats a Política Educativa, Acció
 sindical, secretaria de la Dona, grups de treball, etc, un cop aprovades als
 òrgans de decisió. A més a més, ha de ser un espai de trobada i d’intercanvi
-```
-3070
-
-3075
-
-3080
-
-3085
-
-3090
-
-3095
-
-
-```
-Novembre de 2024
-```
-```
 d’idees de les persones alliberades i de l’afiliació per tal que el discurs del
 sindicat pugui transcendir més enllà de l'organització i del sector laboral.
 Per això s’han proposat diverses iniciatives d’aquesta secretaria recentment
@@ -5341,24 +3130,6 @@ Banc de recursos a la web: es crearà un banc de recursos pedagògics a la
 web del sindicat, on es compartiran materials didàctics classificats per etapes,
 nivells i àrees. Aquest espai facilitarà als docents l'accés a eines de treball i
 fomentarà la col·laboració i el suport mutu entre el professorat. També
-```
-3100
-
-3105
-
-3110
-
-3115
-
-3120
-
-3125
-
-
-```
-Novembre de 2024
-```
-```
 s'inclourà una secció “USTEC·STEs (IAC) recomana”, amb llibres, documentals
 i pel·lícules relacionats amb l'educació.
 Pòdcasts i canal de YouTube: es proposa la creació d'un programa mensual
@@ -5385,26 +3156,8 @@ la creixent amenaça del feixisme.
 En resum, la Secretaria de Formació ha de ser un motor de dinamisme,
 formació i debat dins del sindicat, garantint la preparació continuada dels seus
 membres i fomentant la col·laboració i el suport mutu entre els docents.
-```
-3130
-
-3135
-
-3140
-
-3145
-
-3150
-
-
-```
-Novembre de 2024
-```
 ### 3.2.5. La pròpia organització: imatge, lideratge, comunicació
-
 ### externa i participació
-
-```
 La comunicació externa és una eina fonamental per a crear opinió i acció dins
 de la societat, tant dins com fora de l’àmbit educatiu, en contra de les polítiques
 educatives neoliberals del departament d’Educació. En la societat actual, un
@@ -5434,24 +3187,6 @@ Hem de seguir treballant de forma acurada i rigorosa les nostres publicacions:
 les de format breu ( Full ), les que aprofundeixen temes d'acció sindical ( Eina ), i
 les de reflexió i debat amb profunditat ( Docència ). L’aposta per la digitalització
 de les publicacions pot ajudar a arribar millor a un públic que cada cop llegeix
-```
-3155
-
-3160
-
-3165
-
-3170
-
-3175
-
-3180
-
-
-```
-Novembre de 2024
-```
-```
 menys en paper i que està permanentment connectat. Per altra banda, cal
 consolidar el format audiovisual, que ja fa temps que fem servir, tot i que hauria
 de millorar la freqüència i periodicitat. Té particular importància pel canvi
@@ -5464,12 +3199,8 @@ aquesta línia s’ha treballat en els darrers anys i s’ha aconseguit mantenir
 coherència de la imatge corporativa visible a tot els territoris. Per adaptar-nos
 als temps seguint el principi de renovació, la imatge corporativa pot modificar-
 se, si així s’acorda als òrgans.
-```
 ### 3.2.6. La IAC: el nostre paper en el si de l’organització,
-
 ### l’Administració pública i altres sectors
-
-```
 Els darrers cursos han estat complicats pel que fa a la relació amb la IAC i
 entre les organitzacions sindicals que la formen, especialment després del IV
 congrés i la consegüent congelació de relacions. En particular, resulta vital per
@@ -5486,27 +3217,6 @@ mateixa.
 Tenint en compte aquesta situació, és alhora cert que la influència i
 determinació de les polítiques socials i laborals sobre les polítiques sectorials,
 la necessitat de donar una resposta social global a aquestes polítiques
-```
-```
-320
-```
-3185
-
-3190
-
-3195
-
-3200
-
-3205
-
-3210
-
-
-```
-Novembre de 2024
-```
-```
 d’empobriment de la societat, la timidesa mobilitzadora i les claudicacions del
 sindicalisme burocràtic, així com la necessitat d’afrontar la lluita per la millora
 de les condicions de treball del professorat amb el conjunt dels empleats i
@@ -5538,25 +3248,6 @@ determinat com a prioritaris, en relació amb la IAC, i que ja li vam traslladar
 ocasió de les recents converses bilaterals posteriors a la congelació de
 relacions. A posteriori d’això i segons el resultat, caldrà, entre altres assumptes,
 decidir sobre:
-```
-3215
-
-3220
-
-3225
-
-3230
-
-3235
-
-3240
-
-3245
-
-
-```
-Novembre de 2024
-```
 - La participació dels nostres alliberats i alliberades en les manifestacions
     socials i fer extensives les convocatòries a l’afiliació i als centres de
     treball.
@@ -5574,37 +3265,15 @@ Novembre de 2024
     IAC amb certa periodicitat.
 - L’elaboració d’informes de les reunions IAC per al seu coneixement i
     debat en el si del nostre sindicat
-
 ### 3.3. On els destinem: sindicalisme alternatiu i social, i
-
 ### participació en les diferents lluites
-
 ### 3.3.1. Estratègia sindical per a assolir millores educatives i
-
 ### laborals
-
-```
 No obstant les nostres fortaleses, esmentades al punt 3, malauradament i de
 manera paradoxal, també ens hem d’enfrontar a una debilitat no gens
 menyspreable: just ara que hem d’encarar la lluita per a una transformació
 radical del sistema educatiu (trinxat per la falta d’inversió crònica i pel
 desplegament dels decrets de la LEC), és quan tenim el professorat més
-```
-3250
-
-3255
-
-3260
-
-3265
-
-3270
-
-
-```
-Novembre de 2024
-```
-```
 desmobilitzat i dividit que mai (amb períodes excepcionalment dignes, com ara
 les vagues del cicle “Cambray”). Hem de buscar la causa en moltes derrotes
 acumulades i en el desengany de massa anys de lluita que no ha servit per
@@ -5638,24 +3307,6 @@ d’un article de la Constitució francesa. En qualsevol cas, mai no podem
 renunciar a la vaga com a mecanisme efectiu per a canalitzar la pressió
 col·lectiva, si llegim correctament la situació i sabem posicionar-la quan és el
 moment.
-```
-3275
-
-3280
-
-3285
-
-3290
-
-3295
-
-3300
-
-
-```
-Novembre de 2024
-```
-```
 Quant al nostre sector i a casa nostra, tal com dèiem més amunt, els darrers
 cursos hem tingut excepcionalment exemples potents de vagues amb un
 seguiment digne com no n’hi havia hagut des de feia dècades, i han estat
@@ -5689,26 +3340,6 @@ democràcia i pluralitat en els claustres. Els elements necessaris són:
     reivindicativa unitària.
 - És essencial reflexionar sobre com potenciar la mobilització en general,
     inclosa la vaga, estant amatents a les noves finestres d’oportunitat que
-
-3305
-
-3310
-
-3315
-
-3320
-
-3325
-
-3330
-
-3335
-
-
-```
-Novembre de 2024
-```
-```
 es puguin generar; ara mateix, els abusos cada cop més freqüents de
 les direccions podrien actuar com a catalitzadors en un futur proper per a
 poder convocar alguna vaga lluïda. En qualsevol cas, qualsevol
@@ -5729,14 +3360,9 @@ mitjà.
     zona o comarca, per a dissenyar un calendari mobilitzador _in crescendo,_
     assumible per als treballadors, basat en accions exitoses en termes de
     participació real i amb l’objectiu o objectius ben definits.
-
 ### 3.3.2. L’acció sindical al territori: visites a centres,
-
 ### assessorament i resolució de problemes als professionals de
-
 ### l’educació
-
-```
 Hem de ser conscients que, a causa de la nostra independència econòmica, el
 nostre sindicat té uns recursos limitats que cal administrar de manera racional i
 realista. Això implica la necessitat de prioritzar els nostres esforços. I la prioritat
@@ -5745,27 +3371,6 @@ quotidiana als centres, el contacte directe als docents i personal educatiu que
 representem.
 La presència mitjançant les visites sindicals regulars ens permet portar
 directament la veu del sindicat als claustres, transmetre informació veraç,
-```
-```
-335
-```
-3340
-
-3345
-
-3350
-
-3355
-
-3360
-
-3365
-
-
-```
-Novembre de 2024
-```
-```
 contradir les informacions esbiaixades o ocultes tant per l’Administració com
 per mitjans de comunicació i/o altres sindicats, i alhora disposar d’interlocució
 directa amb mestres, professors, personal laboral i qualsevol membre de la
@@ -5798,24 +3403,6 @@ procedència, variada diversa, també des d’un punt de vista polític, perquè
 enllà que ens identifiquem amb els valors associats tradicionalment a les
 esquerres, tenim la responsabilitat de representar a la totalitat d’un professorat
 que també és divers i plural.
-```
-3370
-
-3375
-
-3380
-
-3385
-
-3390
-
-3395
-
-
-```
-Novembre de 2024
-```
-```
 En l’acció sindical també creiem positiu que hi hagi certa continuïtat entre la
 persona amb llicència sindical i els centres que visita habitualment, car és
 necessari que el delegat i delegada siguin persones de referència per a una
@@ -5848,26 +3435,6 @@ personal adient. Hem d’aprofitar el treball de l’Assessoria Jurídica en l�
 sindical quotidiana a través de comunicats de les conquestes o denúncies que
 anem realitzant: tant els casos individuals com els que són declarats d’interès
 del sindicat.
-```
-3400
-
-3405
-
-3410
-
-3415
-
-3420
-
-3425
-
-3430
-
-
-```
-Novembre de 2024
-```
-```
 Hem de prendre consciència que la dedicació a l’atenció de les xarxes socials
 tant les que ja estan funcionant, com ara pàgina web, Facebook, Twitter, canal
 de Youtube, com les que són emergents són bàsiques tant per a l’atenció com
@@ -5880,10 +3447,7 @@ També hem de prendre consciència del fet que, malgrat que la nostra
 organització s’estructura en seus en què l’autonomia organitzativa és una
 manera d’adaptar-se a la realitat del territori, hauríem d’anar tendint a
 harmonitzar els criteris i els horaris d’atenció del conjunt de les seus.
-```
 ### 3.3.3. Les dificultats i oportunitats
-
-```
 Les vagues, la pressió mediàtica, l’acció parlamentària, l’acció jurídica, la unitat
 sindical (inclosa l’aixecada unitària de la Mesa de Negociació) i les
 negociacions han estat els puntals de l’acció sindical durant el darrer cicle de
@@ -5901,24 +3465,6 @@ amunt: manifestacions, concentracions, vagues, denúncies públiques
 sistemàtiques, reforçament d’accions jurídiques, accions contundents no
 violentes que busquin la complicitat dels membres de la comunitat educativa,
 pressió parlamentària, campanyes intensives a les xarxes socials, etc. Això
-```
-3435
-
-3440
-
-3445
-
-3450
-
-3455
-
-3460
-
-
-```
-Novembre de 2024
-```
-```
 també comporta fer servir tots els contactes i influències possibles, com ara
 representants polítics o personalitats de prestigi i referència de qualsevol camp
 perquè assumeixin les reivindicacions de l’escola pública.
@@ -5951,31 +3497,10 @@ respectius, a generar discurs, un discurs que la Secretaria de Formació té la
 missió de difondre entre les persones alliberades i afiliades, així com la
 Secretaria de Comunicació la té a l’hora de difondre’l a la societat en general. I
 evidentment, cal no perdre de vista el paper indispensable de la Secretaria
-```
-3465
-
-3470
-
-3475
-
-3480
-
-3485
-
-3490
-
-
-```
-Novembre de 2024
-```
-```
 d’Acció Sindical en aquesta xarxa de treball col·laboratiu, una secretaria
 encarregada de dissenyar objectius i estratègia per a l’èxit en la nostra acció
 com a sindicat.
-```
 ### 3.3.4. Objectius
-
-```
 L’acció sindical ha de tenir clara quins són els objectius dels anys que venen.
 Aquests mantenen una línia de continuïtat amb la nostra trajectòria anterior; no
 obstant això, ens trobem en un canvi de cicle que hem de saber analitzar
@@ -5984,12 +3509,8 @@ En primer lloc, cal tenir molt clar que és necessari reforçar el nostre model
 sindical horitzontal, assembleari i participatiu, amb la voluntat de continuar
 liderant la lluita a favor de l’ensenyament públic i de la defensa i assessorament
 dels seus treballadors i treballadores.
-```
 ### 3.3.4.1. La lluita contra la LEC i la LOMLOE i la seva filosofia de
-
 ### fons
-
-```
 Per tot això hem de continuar lluitant contra l’aplicació de la LEC i la LOMCE i
 de la normativa que les despleguen, que estan demostrant la seva toxicitat en
 l’ensenyament públic. Més enllà del que puguem esperar dels recursos encara
@@ -6004,33 +3525,9 @@ transparència, objectivitat i especialitat, on els equips directius esdevinguin
 coordinadors, els centres estiguin regits des de principis democràtics i
 l’autonomia s’entengui com adaptació a la realitat de l’entorn (i no pas a
 projectes singulars i no intercanviables que tinguin com a objecte competir pel
-```
-```
-350
-```
-3495
-
-3500
-
-3505
-
-3510
-
-3515
-
-3520
-
-
-```
-Novembre de 2024
-```
-```
 mercat educatiu en atreure les famílies amb major potencial cultural i
 econòmic).
-```
 ### 3.3.4.2. La lluita contra la privatització i per la xarxa única
-
-```
 Any rere any, constatem com els processos de matrícula acaben amb menys
 grups de la pública i més de la concertada. Aquest tancament de línies es
 produeix en el context de davallada demogràfica dels darrers anys i, des del
@@ -6057,22 +3554,6 @@ contrasta un altre cop amb el que s’exigeix a la pública, on calen 20 alumnes
 per evitar el tancament d’un grup. I això sense tenir en compte que l’escola
 concertada pot tornar a oferir el curs vinent les mateixes places, mentre que a
 l’escola pública no existeix aquesta possibilitat i la línia queda tancada.
-```
-3525
-
-3530
-
-3535
-
-3540
-
-3545
-
-
-```
-Novembre de 2024
-```
-```
 Arribats a aquest punt, pensem que cal obrir la carpeta dels concerts educatius.
 Cal derogar el decret que regula els concerts, un instrument de segregació
 social i perpetuació de les desigualtats denunciat per múltiples organismes
@@ -6106,26 +3587,6 @@ o de menjadors escolars i monitoratge. Entenem que tot allò que implica actes
 educatius en l’àmbit del centre educatiu (això inclou activitats extraescolars, on
 entenem que les administracions locals hi tenen un paper essencial) han de ser
 públics, gestionats de manera pública, per treballadors públics. En aquest
-```
-3550
-
-3555
-
-3560
-
-3565
-
-3570
-
-3575
-
-3580
-
-
-```
-Novembre de 2024
-```
-```
 sentit, tampoc no podem admetre que la formació permanent recaigui en
 empreses o institucions privades o sota fórmules mixtes público-privades, que
 fa que, creixentment els docents l’hagin de pagar de la seva butxaca, o que els
@@ -6143,10 +3604,7 @@ fet al qual, potser la comunitat educativa s’hi ha acostumat, encara que té
 efectes perversos com ara la capacitat d’excloure un percentatge d’alumnes
 elevat. Entenem que l’Administració té la responsabilitat de la bona salut
 econòmica dels centres que implica la gratuïtat total de tots els serveis.
-```
 ### 3.3.4.3. La lluita pel desplegament d’una educació inclusiva
-
-```
 Catalunya segueix al capdavant de l’abandonament escolar prematur (14 %),
 tant en relació a Espanya (13,9 %) com a la mitjana europea (9,7 % el 2021).
 L’any 2022, 97.062 joves van abandonar prematurament el sistema educatiu a
@@ -6160,26 +3618,7 @@ bona planificació posterior. Necessitem un departament d’Educació
 professional, capacitat, de qualitat, honest, ambiciós i amb la voluntat de
 desenvolupar i implementar les mesures i suports universals, addicionals i
 intensius.
-```
-3585
-
-3590
-
-3595
-
-3600
-
-3605
-
-3610
-
-
-```
-Novembre de 2024
-```
 ### 3.3.4.4. La lluita per l’estabilització de les plantilles
-
-```
 El juny del 2024, s’ha conegut una nova sentència del TJUE que resol
 qüestions prejudicials plantejades per un jutjat contenciós administratiu de
 Barcelona en relació a les demandes de funcionariat interí de la Generalitat de
@@ -6209,24 +3648,6 @@ per a les persones de fora del sistema o amb poc temps treballat, però amb
 proves no eliminatòries, menys memorístiques, amb criteris de correcció
 públics i transparents i amb una prova similar a la del COE pel que fa a
 programacions didàctiques. Per tal de fer possible aquesta doble via, ja és hora
-```
-3615
-
-3620
-
-3625
-
-3630
-
-3635
-
-3640
-
-
-```
-Novembre de 2024
-```
-```
 que el departament d’Educació faci els deures i negociï amb el Ministerio de
 Educación y Formación Profesional les modificacions necessàries del reial
 decret 276.
@@ -6259,29 +3680,6 @@ provocar una gran disparitat en els resultats entre els diferents tribunals d’
 mateixa especialitat; i també hi ha persones que van superar les proves, però
 no van ser seleccionades pel fet de no acumular prou mèrits, i més tard es va
 veure com s’ampliava el nombre de places del COO.
-```
-```
-365
-```
-3645
-
-3650
-
-3655
-
-3660
-
-3665
-
-3670
-
-3675
-
-
-```
-Novembre de 2024
-```
-```
 En qualsevol cas, tot i les mancances en els processos d’estabilització, podria
 ser –en el millor dels casos– que l’administració aconsegueixi reduir la taxa
 d’interinitat per sota del 8% abans que acabi l’any 2024, condició fixada per la
@@ -6300,10 +3698,7 @@ anys, els processos d’estabilització no han complert plenament l’objectiu q
 haurien de tenir. En comptes de garantir l’estabilitat a les persones més
 veteranes, s’estabilitzen places. Al CM, l’anàlisi d’USTEC·STEs va permetre
 corroborar que fins a 4.178 docents en actiu amb més de set anys de serveis
-```
 ### prestats no van obtenir-hi cap plaça (per a més detalls, llegiu aquest informe).
-
-```
 D’altra banda, el fet que haguessin quedat places desertes al COE i al COO és
 inacceptable i demostra la nostra denúncia constant que els processos
 d’oposició tal com estan plantejats no serveixen per estabilitzar persones.
@@ -6316,32 +3711,10 @@ garantistes ni justos. Si, a més a més, tenim en compte la manca de criteris
 acceptables per a baremar els mèrits, l’opacitat en els criteris d’avaluació de les
 proves del COE i els nombrosos errors tècnics, no és exagerat afirmar que
 l’estabilització al departament d'Educació ha estat com a mínim molt millorable.
-```
-3680
-
-3685
-
-3690
-
-3695
-
-3700
-
-3705
-
-
-```
-Novembre de 2024
-```
-```
 És per tot això que calen noves mobilitzacions, accions i pressió per donar
 garanties de continuïtat a tot el personal interí i fer-ne possible l’estabilització.
-```
 ### 3.3.4.5. Malestar laboral i lluita per dignificar les nostres
-
 ### professions
-
-```
 En els darrers anys, especialment des de la pandèmia, s'ha evidenciat un
 deteriorament de la salut física i psíquica dels docents, un fenomen global que
 ha contribuït a la "gran renúncia" en el sector educatiu. Aquesta situació ha
@@ -6368,33 +3741,12 @@ salut que els homes, influïdes per polítiques laborals inadequades.
 L'estudi destaca que la situació econòmica i material és determinant per a la
 salut dels docents. Un 36% dels professionals està disposat a abandonar la
 professió, amb un de cada quatre fent-ho en el proper any. Això revela una
-```
-3710
-
-3715
-
-3720
-
-3725
-
-3730
-
-3735
-
-
-```
-Novembre de 2024
-```
-```
 situació crítica que requereix mesures immediates econòmiques,
 administratives i legislatives per revertir la tendència. Els principals factors que
 fan poc atractiva la professió inclouen conflictes amb persones, pèrdua
 d'autoritat i estatus, càrrega psicològica per les condicions de treball i tasques
 burocràtiques excessives.
-```
 ### 3.3.4.5.1. Salaris dignes i poder adquisitiu
-
-```
 El professorat de Catalunya és dels més empobrits de l’Estat espanyol, situat a
 la cua salarial i al capdavant en pèrdua de poder adquisitiu. Els últims tres
 anys, tant docents com la resta de treballadors i treballadores hem patit una
@@ -6404,8 +3756,6 @@ insuficients, signats per CCOO i UGT a la Mesa General de Funció Pública, a
 Madrid, han acabat suposant una revalorització dels nostres salaris de només
 un 9,26% en tres anys, molt per sota del 15,2% d’increment de l’IPC de
 Catalunya en aquest període.
-```
-```
 Si ho mirem amb més perspectiva, des de 2009, la inflació a Catalunya ha estat
 del 33,6%, mentre que la revalorització salarial dels docents de nou ingrés ha
 estat només de l’11,4% per als professors de secundària i del 13,4% per als
@@ -6416,22 +3766,6 @@ cinc anys d’antiguitat estan deixant de percebre respectivament 9.996 € i
 8.077 € anuals. En aquest cas, la pèrdua total acumulada des de 2009 fins a
 finals de 2024 arribarà a ser de 100.200 € i 79.300 €, és a dir, en setze anys
 haurem perdut el salari de dos anys. La pèrdua salarial és equivalent a treballar
-```
-3740
-
-3745
-
-3750
-
-3755
-
-3760
-
-
-```
-Novembre de 2024
-```
-```
 dos anys de franc (els imports indicats estan referits a salaris bruts ja
 actualitzats amb l’increment del 2% de 2024).
 Durant els darrers dos anys, la pèrdua de poder adquisitiu està superant de
@@ -6455,19 +3789,6 @@ financera de 2010, encara no revertides:
 ```
 - Baixada de salari base i complements:
 - Baixada de les pagues extraordinàries:
-
-3765
-
-3770
-
-3775
-
-3780
-
-
-```
-Novembre de 2024
-```
 - Congelació salarial des de 2010 fins a 2016.
 - Suspensió des de 2012 de les prestacions i ajuts dels Fons d’Acció Social
 (FAS) de les persones al servei de l’Administració de la Generalitat.
@@ -6498,27 +3819,6 @@ nostre sou), un increment terrible dels preus dels productes bàsics i un
 augment de preus en les factures dels subministraments.
 La situació esdevé insostenible i cal prendre’n consciència per tal d’assenyalar
 els culpables i els còmplices, que han situat el professorat de Catalunya a la
-
-```
-380
-```
-3785
-
-3790
-
-3795
-
-3800
-
-3805
-
-3810
-
-
-```
-Novembre de 2024
-```
-```
 cua salarial de l’Estat espanyol, sent Catalunya la segona zona més cara on
 viure.
 A banda d’uns salaris inacceptables, les condicions a l’aula són indignes: ràtios
@@ -6548,26 +3848,8 @@ rebutjats pressupostos de la Generalitat contemplaven no invertir-hi més de
 La dignificació dels sous seria possible amb un important increment salarial a
 partir de diverses mesures que USTEC·STEs (IAC) defensem a la Mesa
 General:
-```
 - Revertir les retallades: la baixada del salari base de 2010 i la baixada de les
 pagues extraordinàries.
-
-3815
-
-3820
-
-3825
-
-3830
-
-3835
-
-3840
-
-
-```
-Novembre de 2024
-```
 - Aprovar un sistema d’actualització salarial semblant al de la llei 21/2021, que
 garanteix el poder adquisitiu dels pensionistes, directament vinculat a l’augment
 de la inflació.
@@ -6584,10 +3866,7 @@ d’FP, mestres, etc.)
 - Cobrar tots els càrrecs que es desenvolupen.
 - Cobrar dietes per sortides i colònies.
 - Incorporar el sisè sexenni.
-
 ### 3.3.4.5.2. Combatre la sobrecàrrega i millorar el clima laboral
-
-```
 Un altre dels objectius clau de la nostra lluita els propers anys ha de ser dotar
 els docents i el personal educatiu dels recursos necessaris per a desenvolupar
 la seva tasca i eliminar la sobrecàrrega de treball. L'estat actual de la professió
@@ -6596,22 +3875,6 @@ unes condicions laborals dignes. Algunes propostes clau són:
 Reduir la burocràcia: És essencial simplificar la càrrega burocràtica a la qual
 estan sotmesos els docents. Una manera de fer-ho és simplificar els processos
 d'introducció informàtica, fent-los més àgils i menys tediosos.
-```
-3845
-
-3850
-
-3855
-
-3860
-
-3865
-
-
-```
-Novembre de 2024
-```
-```
 Programacions d'aula: Cal una elaboració de les programacions d'aula que
 sigui més senzilla i assequible, permetent als docents dedicar més temps a la
 tasca educativa directa.
@@ -6641,26 +3904,7 @@ les baixes des del primer dia per evitar la sobrecàrrega dels docents.
 Oposicions: Finalment, no programar oposicions durant el curs escolar evitaria
 la doble jornada dels membres dels tribunals, permetent un millor equilibri entre
 vida professional i personal.
-```
-3870
-
-3875
-
-3880
-
-3885
-
-3890
-
-3895
-
-
-```
-Novembre de 2024
-```
 ### 3.3.4.5.3. La democràcia i la diversitat metodològica
-
-```
 En aquest sentit, és prioritari acabar amb els perfils, el PDI o qualsevol selecció
 de professorat on intervingui directament un òrgan de direcció. L’accés a una
 vacant o destinació ha de fer-se mitjançant mecanismes objectius que
@@ -6684,66 +3928,26 @@ preferentment, un caràcter rotatori per implicar al màxim els claustres en la
 coordinació dels centres. Entenem que és prioritari retornar la cultura
 democràtica en l’organització administrativa i pedagògica dels centres.
 Algunes de les mesures cabdals són:
-```
 ### 1. Derogar els decret de plantilles, autonomia i direccions, alhora que restar
-
-```
 amatents al més que probable desenvolupament del decret d’avaluació.
-```
 ### 2. Garantir de la diversitat metodològica als claustres.
-
-3900
-
-3905
-
-3910
-
-3915
-
-3920
-
-3925
-
-
-```
-Novembre de 2024
-```
 ### 3. Retornar a claustres democràtics que prenguin decisions, en comptes de
-
-```
 ser un espai merament informatiu on l’equip directiu exposa què s’ha fet i
 què es farà.
-```
 ### 4. Elaborar el projecte educatiu des del treball pedagògic conjunt i les
-
-```
 decisions consensuades del claustre.
-```
 ### 5. Decidir en claustre les decisions que l'afecten (canvi de mobiliari que
-
-```
 implica un canvi metodològic, sortides i colònies, agents que entren al
 centre, projectes en els quals es participa...)
-```
 ### 6. Garantir, mitjançant els processos de provisió de destinacions
-
-```
 transparents i objectius i concursos de trasllats on apareguin la pràctica
 totalitat de les places, uns claustres plurals, des del punt de vista
 pedagògic, metodològic, ideològic i generacional.
-```
 ### 7. Promoure la rotació en els càrrecs directius.
-
 ### 8. Revertir el paper gerencial de les direccions i retornar-los a la funció de
-
-```
 gestió de les decisions del claustre.
-```
 ### 3.3.4.6. Transformació Social: pedagogia crítica contra el
-
 ### neoliberalisme
-
-```
 Amb l’aparició dels darrers mals resultats de PISA de 2023, l'opinió pública s’ha
 abocat al debat educatiu. En aquesta ocasió, destaquen dues respostes
 estereotipades igualment problemàtiques i que es retroalimenten: atribuir els
@@ -6754,25 +3958,6 @@ Però mentre discutim sobre metodologies, atrapats en l'oposició entre
 coneixement i competències, el neoliberalisme s'encamina cap a una deriva
 neoautoritària en les polítiques educatives que persegueixen l'eficiència
 econòmica (les de l'OCDE, impulsora de PISA) poden sintetitzar-se
-```
-```
-395
-```
-3930
-
-3935
-
-3940
-
-3945
-
-3950
-
-
-```
-Novembre de 2024
-```
-```
 perfectament amb noves fórmules meritocràtiques que augmentin la segregació
 i les desigualtats.
 Per recuperar la iniciativa en favor d'una educació emancipadora és essencial
@@ -6805,24 +3990,6 @@ l’alçada d’atendre les reivindicacions de la part social quant a condicions
 laborals i qualitat del sistema.
 La introducció dels currículums competencials no és més que la carcassa del
 pla. En el procés d'homogeneïtzació internacional dels sistemes educatius, del
-```
-3955
-
-3960
-
-3965
-
-3970
-
-3975
-
-3980
-
-
-```
-Novembre de 2024
-```
-```
 que PISA n'és l'ariet, Catalunya ha estat, com en les retallades, alumna
 avantatjada. L'aprovació el 2009 de la Llei d'educació de Catalunya (LEC) i el
 seu desplegament han estat un veritable pla de xoc per imposar el
@@ -6855,26 +4022,6 @@ salvat els docents de ser assenyalats com a responsables de tots els mals.
 Cal recordar que Catalunya va retallar en educació, durant els anys postcrisi,
 cinc vegades més que el conjunt de la UE i que la xarxa concertada s'ha
 consolidat com a fet diferencial respecte l'entorn amb un 31,5% del total de la
-```
-3985
-
-3990
-
-3995
-
-4000
-
-4005
-
-4010
-
-4015
-
-
-```
-Novembre de 2024
-```
-```
 matrícula. Per això, ser crítics amb la lògica competencial, la LEC i Escola
 Nova 21 ha d'anar de la mà de deixar de prendre PISA com a indicador i
 bandejar els dictats de l'OCDE, condició sine qua non de tota política educativa
@@ -6906,24 +4053,6 @@ patides els darrers anys per l'escola. Cal recordar que els països amb bons
 resultats PISA del nostre entorn són els que han aprofundit en la lògica
 competencial i la resta de mesures del paquet: més autonomia de centre, més
 lideratge pedagògic, més digitalització, etc.
-```
-4020
-
-4025
-
-4030
-
-4035
-
-4040
-
-4045
-
-
-```
-Novembre de 2024
-```
-```
 En segon lloc, legitima la situació de les classes altes com a un premi al seu
 talent i no com a una situació de privilegi heretada. Les generacions de joves
 actuals viuen en un món més incert, complex, i asfixiant que la majoria dels
@@ -6956,24 +4085,6 @@ anàlisi encertada, no té la capacitat de confrontar les polítiques lesives qu
 venen i pot arribar a ser funcional a la crítica neoconservadora. Cal ser crítics
 amb la desregulació curricular i defensar currículums clars, amb continguts
 científics i humanístics de qualitat que permetin la tasca docent sense un mar
-```
-4050
-
-4055
-
-4060
-
-4065
-
-4070
-
-4075
-
-
-```
-Novembre de 2024
-```
-```
 de burocràcia programadora i sobrecàrrega avaluadora. Ara bé, una cosa és
 criticar un enfocament competencial dirigit per la lògica del mercat i l'altra caure
 en la demonització i caricatura de qualsevol alternativa o innovació
@@ -7000,48 +4111,16 @@ aprenentatge impliqui aprendre a pensar per un mateix al costat d'altres i
 accedir en igualtat de condicions al saber. Ens calen aliances que vagin més
 enllà de l'educació, perquè l'escola no pot solucionar tots els problemes del
 món ni subvertir per si sola les desigualtats estructurals del sistema.
-```
 ### 3.3.4.7. La lluita pel model lingüístic propi
-
-```
-Un dels objectius de l’acció sindical d’USTEC·STEs en els propers anys ha de
-ser afrontar públicament i de manera pràctica la defensa del model d’immersió
-lingüística, tal com ja hem argumentat al punt 2.2.2.6. En tant que és prou
-```
-```
-410
-```
-4080
-
-4085
-
-4090
-
-4095
-
-4100
-
-4105
-
-
-```
-Novembre de 2024
-```
-```
 coneguda la posició que el nostre sindicat USTEC·STEs ha mantingut respecte
 al català com a llengua d’ús i aprenentatge , i també com a element de màxima
 importància en la cohesió social als nostres centres educatius, la lluita pel
 manteniment i reforç del model lingüístic del qual ens hem dotat des de fa anys
 esdevé un element transversal i clau per al model d’escola pública i de país que
 sempre hem defensat.
-```
 ### 3.3.5. Pensar, reflexionar i actuar col·lectivament, un
-
 ### sindicalisme alternatiu i social: els moviments socials i la
-
 ### USTEC·STEs (IAC)
-
-```
 Des de la seva fundació, USTEC·STEs(IAC) ha tingut molt clar que aposta per
 un model de sindicalisme alternatiu i social que, lluny de tancar-se en la pròpia
 lluita de cada sector, veu en l’aliança amb d’altres agents, sectors i
@@ -7063,24 +4142,6 @@ Demà, pel que fa a les lligades a l’educació; així mateix, el Juntes podem 
 marxes per la dignitat, amb una proposta clara i actualitzada a la realitat que viu
 el nostre país. Cal destacar com, des de la campanya Desmilitaritzem
 l’educació, s’han aconseguit posicionaments polítics i petites victòries pel que
-```
-4110
-
-4115
-
-4120
-
-4125
-
-4130
-
-4135
-
-
-```
-Novembre de 2024
-```
-```
 fa a la presència de l’exèrcit als espais educatius. I també la campanya Cap
 plat buit, per l’augment de les beques menjador, i la denúncia que hem fet en la
 gestió dels menjadors escolars i per la sobirania alimentària. Finalment, la
@@ -7113,26 +4174,6 @@ convocades pels espais de què la nostra organització sindical hagi decidit
 formar part o participar-hi ,és una responsabilitat col·lectiva que és bo que
 compti amb la implicació dels representants sindicals, així com fer-les
 extensibles al conjunt de l’afiliació i als treballadors i treballadores dels centres
-```
-4140
-
-4145
-
-4150
-
-4155
-
-4160
-
-4165
-
-4170
-
-
-```
-Novembre de 2024
-```
-```
 educatius. També creiem que és positiu i inspirador per als nostres
 representats participar, més enllà de les assemblees, en aquells espais
 educatius i plataformes locals que es creïn als municipis o barris on cada
@@ -7165,24 +4206,6 @@ més oportunament i puntual als centres, amb la qual cosa es va superar un
 dèficit històric i que en la darrera edició ha abordat la cultura de pau des de
 l’òptica del racisme present a la nostra societat, atiat sens dubte en els darrers
 anys per l’auge de l’extrema dreta. L’abordatge incipient d’aquesta
-```
-4175
-
-4180
-
-4185
-
-4190
-
-4195
-
-4200
-
-
-```
-Novembre de 2024
-```
-```
 problemàtica ha estat possible per la col·laboració de l’entitat Migress en
 l’elaboració dels materials i l’assessorament conceptual d’aquesta preocupant
 realitat. Aquesta Eina s’ha presentat públicament aquest curs en diferents
@@ -7214,24 +4237,6 @@ mantenir les delegacions a Guatemala i les aportacions del 0’7% i més.
 El compromís compartit
 Atès que aquest sindicalisme alternatiu, transformador i arrelat als moviments
 socials, allunyat dels sindicats institucionalitzats i professionals dels serveis,
-```
-4205
-
-4210
-
-4215
-
-4220
-
-4225
-
-4230
-
-
-```
-Novembre de 2024
-```
-```
 forma part de l’ADN fundacional del nostre sindicat, hem de consolidar,
 fomentar i facilitar la participació en aquests espais.
 Cal entendre que la Secretaria de Moviments Socials realitza una tasca
@@ -7264,29 +4269,6 @@ coordinar-nos i assumir tasques compartides en espais i plataformes, però
 també serà necessari aprofundir en aquesta definició de sindicalisme social que
 vincula la lluita laboral amb la lluita per unes condicions de vida dignes,
 entenent que sovint les persones, organitzades o no, dels nostres sectors de
-```
-```
-425
-```
-4235
-
-4240
-
-4245
-
-4250
-
-4255
-
-4260
-
-4265
-
-
-```
-Novembre de 2024
-```
-```
 treball i altres sectors precaritzats també s’organitzen més enllà del lloc de
 treball, per fer front i lluitar contra les polítiques neoliberals que volen
 mercantilitzar totes les esferes de la nostra vida. Entenem que és des
@@ -7298,10 +4280,7 @@ La mirada coral
 La proposta de treball de la secretaria de cara els proper anys s’estructura en
 tres eixos principals, que no poden ser entesos com agrupacions temàtiques
 independents, sinó com una estructuració dinàmica i comunicant.
-```
 ### i) Eix Terra
-
-```
 L'Eix Terra aglutina totes les iniciatives relacionades amb l’educació ecosocial,
 els drets econòmics, socials, culturals i ambientals, així com els principis de
 l'ecofeminisme i la sobirania alimentària.
@@ -7320,24 +4299,6 @@ oferim a través de les nostres publicacions (eines, fulls, etc.) recursos
 pedagògics per treballar aquests temes.
 Defensar el territori és fonamental per a garantir un futur sostenible. Això inclou
 oposar-nos a agressions com les centrals nuclears, les centrals eòliques i
-```
-4270
-
-4275
-
-4280
-
-4285
-
-4290
-
-4295
-
-
-```
-Novembre de 2024
-```
-```
 solars (que són sovint presentats com una solució neta i sostenible per a la
 generació d'energia, però la seva implementació pot tenir impactes negatius
 significatius sobre el paisatge, la terra i les poblacions locals). Aquestes
@@ -7371,24 +4332,6 @@ mecanicista del món i la cultura de la dominació i la violència. Amb una cree
 antropocèntrica i androcèntrica de superioritat biològica, els éssers humans
 s'han apropiat, han dominat i han sotmès els altres éssers vius. El projecte
 modern occidental de creixement econòmic il·limitat s'ha esgotat i resulta
-```
-4300
-
-4305
-
-4310
-
-4315
-
-4320
-
-4325
-
-
-```
-Novembre de 2024
-```
-```
 impossible de mantenir en un món finit, i camina de manera accelerada cap al
 col·lapse.
 En aquest context, la sobirania alimentària és clau per garantir que les
@@ -7409,10 +4352,7 @@ projectes especulatius que posen en perill la biodiversitat i les condicions de
 vida dels nostres pobles. A través de la col·laboració amb altres moviments
 socials, visibilitzem la nostra oposició a aquests projectes i defensem els drets
 del territori i de les seves habitants.
-```
 ### ii) Eix Comunitat
-
-```
 Una de les tasques amb més recorregut i permanència ha estat l’aposta
 decidida del sindicat pel 0,7 i +. D’ençà el sorgiment de les acampades l’any
 1994, USTEC·STEs(IAC) ha posat en pràctica l’exigència governamental en el
@@ -7422,24 +4362,6 @@ internacionalista i l’alliberament dels pobles, lluny de la lògica colonial i
 que, per mitjà del paternalisme i la caritat, opera també en l’anomenat turisme
 solidari i de cooperació que alimenta l’oferta de la indústria de l’oci per a joves
 europeus.
-```
-4330
-
-4335
-
-4340
-
-4345
-
-4350
-
-4355
-
-
-```
-Novembre de 2024
-```
-```
 La cooperació educativa practicada pel sindicat és una relació social i política
 igualitària, articulada amb les lluites i els moviments socials; és internacionalista
 perquè promou estratègies i el treball en xarxa entre diferents organitzacions
@@ -7471,32 +4393,9 @@ habitava aquelles comunitats. Així, anualment, un equip de persones viatgen a
 Guatemala i fan tasques d'acompanyament internacional, essent preparades
 durant el curs i assolint un coneixement profund. Aquest procés es fa de la mà
 d’Entrepobles. Les brigades de pau són visites més puntuals i focalitzades en
-```
-4360
-
-4365
-
-4370
-
-4375
-
-4380
-
-4385
-
-4390
-
-
-```
-Novembre de 2024
-```
-```
 un aprenentatge de la realitat concreta, com les realitzades a Palestina i al
 Sàhara, de la mà de la IAC.
-```
 ### iii) Eix Pau
-
-```
 Tots els conflictes armats que hi ha actius actualment al món, més d’una
 trentena, evidencien més que mai la necessitat d’educar per generar
 pensament crític envers el militarisme que aboca la humanitat a la destrucció
@@ -7526,27 +4425,6 @@ per la cultura de pau des dels centres educatius amb més intensitat que mai, en
 totes les etapes educatives, amb tots els mitjans a l’abast. En aquest sentit,
 creiem que L’ Eina de la Pau que s’edita al voltant del 30 de gener cada curs ha
 de seguir arribant als centres amb prou temps perquè el professorat pugui
-```
-```
-440
-```
-4395
-
-4400
-
-4405
-
-4410
-
-4415
-
-4420
-
-
-```
-Novembre de 2024
-```
-```
 adaptar les propostes que conté al seu alumnat. També és imprescindible, en
 el context actual, continuar participant i aportant tot allò que es pugui en
 plataformes com Desmilitaritzem l’educació o Aturem les guerres, per anar
@@ -7562,12 +4440,8 @@ militarisme que avança en les societats capitalistes del Nord Global. Un
 militarisme que inclou la possibilitat d’un enfrontament nuclear entre potències
 que, a més, podria tenir lloc en sòl europeu. És el nostre deure fer-ho des de
 l’escola.
-```
 ### 3.3.6. Salut laboral: la línia a seguir als centres educatius i a
-
 ### nivell intern
-
-```
 La coordinació de la Salut Laboral ha estat cabdal per a articular propostes
 sobre diferents temàtiques i ha permès a nivell nacional i a nivell territorial fer
 un treball continuat, tant a nivell intern com extern. El bon funcionament i
@@ -7579,23 +4453,6 @@ Durant els últims anys hem demanat insistentment que l’Administració apliqu�
 la llei de Prevenció de Riscos Laborals, aprovada el 1995 (LPRL en endavant),
 al departament d’Ensenyament, és a dir, que compleixi la normativa vigent.
 Les demandes front a l’Administració es concreten en:
-```
-4425
-
-4430
-
-4435
-
-4440
-
-4445
-
-4450
-
-
-```
-Novembre de 2024
-```
 1. Pel que fa als òrgans de participació, s’ha estat demanant una
 participació més activa dels delegats i delegades de salut de tots els
 territoris en els diferents comitès de salut dels serveis territorials i la
@@ -7627,23 +4484,6 @@ resolt. El nostre sindicat ha estat i està en desacord amb la contractació
 d’empreses alienes per tractar-se d’una privatització i perquè no es
 garanteix la periodicitat pactada. També demanem que les revisions
 estiguin més orientades a possibles patologies laborals.
-
-4455
-
-4460
-
-4465
-
-4470
-
-4475
-
-4480
-
-
-```
-Novembre de 2024
-```
 6. Pel que fa a les adaptacions de lloc de treball, seguim reivindicant que es
 treballi sobre l’origen dels riscos que, en la seva gran majoria, solen ser les
 condicions de treball. El Departament s’entossudeix a no acceptar que la
@@ -7675,37 +4515,15 @@ moments resta pendent de tancar.
 9. El Protocol sobre la Violència contra els Treballadors ha estat una
 demanda històrica. Aquest protocol ha tirat endavant per la insistència del
 nostre sindicat, i finalment s’ha aprovat. Seguim treballant per millorar
-
-4485
-
-4490
-
-4495
-
-4500
-
-4505
-
-4510
-
-
-```
-Novembre de 2024
-```
-```
 aquest protocol, que deixa en situació de vulnerabilitat a la víctima a l’hora
 de posar una denúncia.
-```
 10. Posem sobre la taula la problemàtica de la violència als centres i
 plantegem la necessitat d’establir un protocol per vehicular els incidents que
 es produeixin per part de l’alumnat cap el personal educatiu. Exigim
 recursos per a desenvolupar els projectes de convivència i poder treballar
 de forma preventiva la violència als centres educatius.
-
-```
 La proposta d’acció sindical, front a l’Administració, com a delegats/es de salut
 és:
-```
 1. Continuar vetllant pel compliment de la LPRL i d’aquelles normatives que
 facin referència a la prevenció de riscos en el lloc de treball, amb la inclusió
 de demandes bàsiques com ara l’increment de metges i metgesses
@@ -7724,21 +4542,6 @@ El treball intern del sindicat inclouria la cohesió i coordinació dels i les
 delegades sindicals en l’àmbit de la salut laboral. La nostra tasca s’orienta a:
 1. Fer acollida i acompanyament dels nous i noves delegats de salut i a
 la resta de persones amb alliberament sindical
-
-4515
-
-4520
-
-4525
-
-4530
-
-4535
-
-
-```
-Novembre de 2024
-```
 2. Consolidar la salut laboral com a eix tranversal dins el sindicat.
 Animem a inscriure’s a la formació bàsica en prevenció de riscos a totes
 les persones amb alliberament sindical, siguin o no delegats/es de salut.
@@ -7755,12 +4558,8 @@ judicials.
 centres i a l’afiliació, promoure campanyes de sensibilització i
 participació per a la millora de la salut laboral als centres de treball,
 donar visibilitat a la salut laboral a Educació.
-
 ### 3.3.7. El personal laboral: condicions, diferents col·lectius,
-
 ### acció sindical i encaix en les diferents estructures
-
-```
 Les pràctiques de les administracions públiques a l’hora de regular el personal
 de l'administració, creant situacions administratives i laborals tan diferenciades,
 dificulta la defensa col·lectiva de tots els treballadors i treballadores. En aquest
@@ -7770,31 +4569,9 @@ departament d’Educació. El retorn a un conveni propi per al personal laboral 
 Departament, tal com tenen també en altres comunitats autònomes, permetria
 arribar a una equitat pel que fa als drets laborals d’aquests treballadors i
 treballadores.
-```
-```
-455
-```
-4540
-
-4545
-
-4550
-
-4555
-
-4560
-
-4565
-
-
-```
-Novembre de 2024
-```
-```
 El personal laboral del departament d’Educació és un col·lectiu feminitzat, amb
 pràcticament un 99% de dones, i divers, format per diverses categories
 professionals amb unes funcions pròpies:
-```
 1. Personal d’atenció educativa (PAE): tècnic/a en educació infantil
 (TEEI), educador/a d’educació especial (EEE), integrador/a social (INS),
 auxiliars d’educació especial (AEE).
@@ -7823,24 +4600,6 @@ als centres i, per tant, la consideració del personal laboral com a membres de
 ple dret en els claustres, garantint el seu dret a vot.
 D'altra banda, l'Administració ha intentat de forma reiterada augmentar i
 mantenir la privatització, ja existent, d’aquest personal, fomentant la introducció
-
-4570
-
-4575
-
-4580
-
-4585
-
-4590
-
-4595
-
-
-```
-Novembre de 2024
-```
-```
 de personal subcontractat a l’empresa privada, com és el cas dels monitors/es
 d’educació especial (vetlladors/es). Cal que USTEC·STEs continuï amb la lluita
 contra la privatització dels serveis públics a mans de l’anomenat tercer sector.
@@ -7872,33 +4631,12 @@ representació en els espais de negociació de Funció Pública i de la CIVE
 personal laboral), a través de la IAC; cal assegurar la nostra coordinació amb la
 IAC i la nostra adequada i suficient representació en aquests espais, en tant
 que hi tenim dret per resultats electorals.
-```
-4600
-
-4605
-
-4610
-
-4615
-
-4620
-
-4625
-
-
-```
-Novembre de 2024
-```
-```
 D’altra banda, i amb l’objectiu d'incrementar la representació d’USTEC·STEs
 dins els diferents àmbits de negociació del personal laboral, ens cal continuar
 treballant en la línia de defensa d’aquest col·lectiu per esdevenir-ne també
 referents i i continuar millorant així, de forma progressiva, els resultats
 electorals en les pròximes eleccions.
-```
 ### 3.4. Relació amb els altres agents educatius, socials i polítics
-
-```
 Molts dels objectius marcats en els punts anteriors de la ponència s’enfronten
 amb els interessos de la majoria de les diferents organitzacions polítiques i amb
 la correlació de forces existent al Govern. Les aliances, pactes, acords i
@@ -7918,28 +4656,8 @@ relacions o, fins i tot, en solitari.
 Per tot això aquest punt intenta analitzar els diferents espais on ens situem i les
 diferents organitzacions o plataformes més o menys afins, per prendre les
 diferents decisions els propers anys.
-```
 ### 3.4.1. L’Administració: meses de negociació, paritàries, CIVE,
-
 ### Comitè Intercentres, paritàries
-
-4630
-
-4635
-
-4640
-
-4645
-
-4650
-
-4655
-
-
-```
-Novembre de 2024
-```
-```
 Les meses de negociació són el principal espai de relació entre la nostra
 patronal i el personal a qui representem. Aquestes meses de negociació, cada
 cop més, són menystingudes i menyspreades per l’Administració. Cal
@@ -7971,33 +4689,12 @@ Molt lligat amb el poder executiu, hem de saber moure’ns, utilitzar i aprofita
 poder legislatiu que representa el Parlament, sempre actuant amb una total
 independència de qualsevol partit polític. Hem de portar els posicionaments al
 Parlament amb els partits polítics que calguin, amb la finalitat d’aconseguir els
-```
-4660
-
-4665
-
-4670
-
-4675
-
-4680
-
-4685
-
-
-```
-Novembre de 2024
-```
-```
 nostres objectius, ja sigui en solitari o amb d’altres organitzacions, ja sigui amb
 un o tots els partits (exceptuant les opcions neofeixistes).
 No només hem d’exercir i comunicar la nostra independència política, sinó que
 aquesta ens ha de portar a no deixar-nos utilitzar per cap partit polític concret
 en les seves estratègies electoralistes.
-```
 ### 3.4.2. La resta de sindicats
-
-```
 Tot i que és important mantenir una relació constant amb la resta
 d’organitzacions sindicals de la mesa sindical, hem de continuar lluitant contra
 l’aplicació injusta de la radiació que fa que UGT tingui representació a la Mesa
@@ -8021,34 +4718,10 @@ Catalans, hem de seguir enfortint la relació amb l’STEPV i l’STEI. Són ali
 incondicionals en la defensa dels atacs judicials i polítics des de Madrid en
 contra l’ús de la llengua catalana. Així mateix hem de continuar reforçant la
 nostra relació amb tots els sindicats que defensin les llengües pròpies.
-```
-```
-470
-```
-4690
-
-4695
-
-4700
-
-4705
-
-4710
-
-4715
-
-
-```
-Novembre de 2024
-```
-```
 En l’àmbit internacional cal continuar apostant per enfortir els lligams amb totes
 les organitzacions sindicals per qüestions relacionades amb les condicions
 laborals, de política educativa i socials en els seus territoris.
-```
 ### 3.4.3. La resta de la comunitat educativa i de la societat
-
-```
 L’espai on es troben representades les organitzacions que formem part de la
 comunitat educativa és el Marc Unitari de la Comunitat Educativa (MUCE). Tot i
 això en aquests moments és un espai poc actiu. Sempre hi hem tingut
@@ -8075,24 +4748,6 @@ diferents etapes educatives, amb l’increment generalitzat de preus públics i
 taxes per serveis públics educatius o el seu necessari suport a vagues i
 mobilitzacions més àmplies, fa necessari que tinguem una estreta relació i
 coordinació amb les organitzacions de famílies. Cal recordar que dins aquestes
-```
-4720
-
-4725
-
-4730
-
-4735
-
-4740
-
-4745
-
-
-```
-Novembre de 2024
-```
-```
 organitzacions sovint i trobem professionals de l’àmbit educatiu. A nivell
 general, amb la AFFAC, hem trobat posicionaments més coincidents que en
 etapes anteriors i hem de seguir aprofundint en els punts comuns que ens fan
@@ -8124,21 +4779,3 @@ preocupant que fa que pensem que d’aquí no gaire ja no estigui normalitzada
 en tot el territori. El Govern no ha apostat ni defensat de manera clara per a
 protegir-la i veiem que haurem de ser les organitzacions i moviments socials
 qui fem el possible per demanar que tingui l’espai que es mereix.
-```
-4750
-
-4755
-
-4760
-
-4765
-
-4770
-
-4775
-
-
-Novembre de 2024
-
-
-
