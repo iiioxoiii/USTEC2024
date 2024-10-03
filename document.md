@@ -1472,6 +1472,7 @@ garantir ràtios equiparades a les europees. També haurien de comptar amb
 personal de suport educatiu (auxiliars d’EE-AEE, educadors d’educació
 especial-EEE) i suport de personal d’EAP per a poder atendre de manera
 inclusiva l’alumnat.
+### 2.2.2.1.2. Escola rural
 A mercè de la dinàmica de retallades i els canvis constants al capdavant de la
 conselleria d’Educació, hem vist com alguns dels aspectes qualitatius s’han
 anat deteriorant a partir de la pràctica de les diverses administracions polítiques
