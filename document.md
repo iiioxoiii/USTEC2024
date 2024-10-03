@@ -2419,10 +2419,7 @@ sexoafectiva a les aules per a combatre, amb mesures efectives, l’assetjament
 sexual. A més a més, vetllarem per la igualtat de gènere en el món laboral i per
 la recuperació del valor del treball domèstic i de cures, invisible però
 imprescindible.
-```
 ### 2.2.2.8. Una escola laica per una societat laica
-
-```
 En aquest sindicat, hem apostat sempre per una escola laica, que eduqui
 sense dogmes, amb valors humanistes i universals, que respecti la diversitat i
 els valors ètics. Per aquesta raó, lluitem i hem lluitat per un model d’educació
@@ -2866,7 +2863,6 @@ si aquesta realitat no s’aborda amb temps. És per aquest motiu que es fa
 necessari tenir, com a sindicat madur i que ha crescut i evolucionat molt els
 darrers anys, una política d’afiliació comuna. En aquest sentit, tenim el repte
 d’impulsar diverses línies de treball:
-
 - Fer efectiva una base de dades única, en els termes que preveuen els
     estatuts; això és que les dades bancàries de l’afiliació han d’estar
     custodiades exclusivament per les persones responsables de finances
@@ -2978,11 +2974,9 @@ seva participació:
 - Crear nous mecanismes de participació directa de l’afiliació, ja siguin de
     tipus deliberatiu, com són les conferències nacionals periòdiques per
     aprofundir en alguns dels debats viu dins el sindicat, ja sigui amb
-
 mecanismes de democràcia directa per a la presa de decisions: les
 consultes a l’afiliació poden ser un mecanisme que faci sentir als afiliats
 que participen en decisions rellevants del sindicat.
-```
 - Un altre mecanisme que pot ajudar a involucrar l’afiliació és obrir la seva
     participació en grups de treball o secretaries per tal que aquests es
     nodreixin no només de delegats sindicals.
@@ -3334,7 +3328,6 @@ proposem que la nostra estratègia recuperi diversos elements en el nou cicle
 que s’obre si volem avançar en els nostres objectius: la xarxa pública única, la
 millora salarial, l’augment de recursos i reducció de sobrecàrrega i la
 democràcia i pluralitat en els claustres. Els elements necessaris són:
-```
 - La solidaritat (unitat) sindical és crucial per amplificar els suports i
     recursos durant els conflictes. Cal que definim un decàleg clar
     d’objectius i que intentem que aquest es converteixi en una plataforma
@@ -3350,7 +3343,6 @@ dissenyant un full de ruta estratègic, ben planificat i de pressió creixent
 que pugui desembocar en la vaga, que, d’altra banda, ha de tenir un
 objectiu molt clar i ben definit; és obvi, que la vaga no és un fi, sinó un
 mitjà.
-```
 - Aquesta estratègia hauria de sustentar-se en accions que es podrien
     emmarcar en quatre pilars: mobilitzacions, acció jurídica, denúncia
     pública i pressió parlamentària, sempre convenientment comunicades.
@@ -3787,7 +3779,6 @@ inflació acumulada fins ara es concentra en els darrers tres anys.
 La inflació no és l’única causa del nostre empobriment. També ho són les
 retallades salarials als treballadors i treballadores públics en plena crisi
 financera de 2010, encara no revertides:
-```
 - Baixada de salari base i complements:
 - Baixada de les pagues extraordinàries:
 - Congelació salarial des de 2010 fins a 2016.
@@ -4112,6 +4103,9 @@ aprenentatge impliqui aprendre a pensar per un mateix al costat d'altres i
 accedir en igualtat de condicions al saber. Ens calen aliances que vagin més
 enllà de l'educació, perquè l'escola no pot solucionar tots els problemes del
 món ni subvertir per si sola les desigualtats estructurals del sistema.
+
+
+
 ### 3.3.4.7. La lluita pel model lingüístic propi
 coneguda la posició que el nostre sindicat USTEC·STEs ha mantingut respecte
 al català com a llengua d’ús i aprenentatge , i també com a element de màxima
